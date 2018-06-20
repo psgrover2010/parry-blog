@@ -1,11 +1,11 @@
 features:
   name: features
   description: false
-  cover: false
+  cover: true
 austria:
   name: austria
   description: false
-  cover: false
+  cover: true
 photography:
   name: photography
   description: false
