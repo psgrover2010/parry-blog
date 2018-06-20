@@ -14,3 +14,7 @@ photostory:
   name: photo-story
   description: true
   cover: true
+destinations:
+  name: destinations
+  description: true
+  cover: true
