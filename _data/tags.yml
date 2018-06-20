@@ -1,20 +1,16 @@
-# speeches:
-#   name: speeches
-#   description: Some of the greatest words ever spoken.
-#   cover: assets/images/speeches.jpg
 features:
   name: features
-  description: False
-  cover: False
+  description: false
+  cover: false
 austria:
   name: austria
-  description: False
-  cover: False
+  description: false
+  cover: false
 photography:
   name: photography
-  description: False
-  cover: False
+  description: false
+  cover: false
 photostory:
-  name: photostory
-  description: False
-  cover: False
+  name: photo-story
+  description: true
+  cover: true
