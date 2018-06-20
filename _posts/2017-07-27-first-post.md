@@ -10,6 +10,7 @@ tags:
   - Features
   - Austria
   - Photo Story
+  - Destinations
 class: post-template
 subclass: post tag-getting-started
 author: parry
