@@ -6,8 +6,13 @@ navigation: true
 title: First Post
 date: 2017-07-27 05:00:00
 tags:
-  - Getting started
+  - Photography
+  - Features
+  - Austria
+  - Photo Story
 class: post-template
 subclass: post tag-getting-started
-author: ghost
+author: parry
 ---
+
+I am doing just fine with post.
