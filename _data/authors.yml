@@ -1,12 +1,12 @@
 parry:
   username: parry   
   name: Parvinderpal Singh
-  url_full: http://jekyller.github.io/jasper2/
+  url_full: https://thevisits.in/
   url: jekyller.github.io/jasper2
   bio: The traveller
   picture: assets/images/ghost.png
-  facebook: ghost
-  twitter: tryghost
+  facebook: thevisits
+  twitter: the_visits
   cover: False
 ghost:
   username: ghost
