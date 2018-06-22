@@ -18,3 +18,11 @@ destinations:
   name: destinations
   description: true
   cover: true
+europe:
+  name: europe
+  description: true
+  cover: true
+asia:
+  name: asia
+  description: true
+  cover: true
