@@ -14,6 +14,6 @@ author: parry
 
 Thank you veer ji
 
-&nbsp;
+ 
 
 ![](/uploads/fb-img-1529316953122-1.jpeg)<br>![](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAAEAAAABCAYAAAAfFcSJAAAADUlEQVQYV2NYtWrVfwAG/gL+NbCogwAAAABJRU5ErkJggg==){: .cms-image-placeholder}
