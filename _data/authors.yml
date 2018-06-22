@@ -1,87 +1,101 @@
 parry:
-  username: parry   
+  username: parry
   name: Parvinderpal Singh
-  url_full: https://thevisits.in/
+  url_full: 'https://thevisits.in/'
   url: jekyller.github.io/jasper2
   bio: The traveller
-  picture: assets/images/ghost.png
+  picture: uploads/parry-profile.jpg
   facebook: thevisits
   twitter: the_visits
-  cover: False
+  cover: false
 ghost:
   username: ghost
   name: Ghost
-  url_full: http://jekyller.github.io/jasper2/
+  url_full: 'http://jekyller.github.io/jasper2/'
   url: jekyller.github.io/jasper2
   bio: The professional publishing platform
   picture: assets/images/ghost.png
   facebook: ghost
   twitter: tryghost
-  cover: False
+  cover: false
 hannah:
   username: hannah
   name: Hannah Wolfe
-  location: London, UK
-  url_full: http://hannah.wf/
+  location: 'London, UK'
+  url_full: 'http://hannah.wf/'
   url: hannah.wf
-  bio: Hannah is the co-founder and lead developer at Ghost. She spends her days looking after Ghost's developer community, tracking down bugs & ensuring Ghost(Pro) is a happy place.
+  bio: >-
+    Hannah is the co-founder and lead developer at Ghost. She spends her days
+    looking after Ghost's developer community, tracking down bugs & ensuring
+    Ghost(Pro) is a happy place.
   picture: assets/images/hannah.jpg
-  facebook: False
+  facebook: false
   twitter: erisds
   cover: assets/images/hannah-cover.jpg
 john:
   username: john
   name: John O'Nolan
   location: On a plane
-  url_full: http://john.onolan.org/
+  url_full: 'http://john.onolan.org/'
   url: john.onolan.org
-  bio: Founder at Ghost.org. Writes about open source, startup life, non-profits, and publishing platforms. Travels the world with a bag of kites.
+  bio: >-
+    Founder at Ghost.org. Writes about open source, startup life, non-profits,
+    and publishing platforms. Travels the world with a bag of kites.
   picture: assets/images/john.jpg
-  facebook: False
-  twitter: False
-  cover: False
+  facebook: false
+  twitter: false
+  cover: false
 lewis:
   username: lewis
   name: Lewis Carroll
-  location: Cheshire, England
-  url_full: False
-  url: False
-  bio: My real name is Charles Lutwidge Dodgson, but people call me Lewis. I'm an English writer, mathematician, logician, Anglican deacon and photographer. People know me best for writing about Alice.
+  location: 'Cheshire, England'
+  url_full: false
+  url: false
+  bio: >-
+    My real name is Charles Lutwidge Dodgson, but people call me Lewis. I'm an
+    English writer, mathematician, logician, Anglican deacon and photographer.
+    People know me best for writing about Alice.
   picture: assets/images/lewis.jpeg
-  facebook: False
-  twitter: False
-  cover: False
+  facebook: false
+  twitter: false
+  cover: false
 abraham:
   username: abraham
   name: Abraham Lincoln
-  location: Kentucky, USA
-  url_full: False
-  url: False
-  bio: I was the 16th president of the USA until I was assassinated in April of 1963. I led the US through its Civil War - its bloodiest and greatest moral, constitutional and political crisis.
+  location: 'Kentucky, USA'
+  url_full: false
+  url: false
+  bio: >-
+    I was the 16th president of the USA until I was assassinated in April of
+    1963. I led the US through its Civil War - its bloodiest and greatest moral,
+    constitutional and political crisis.
   picture: assets/images/abraham.jpg
-  facebook: False
-  twitter: False
-  cover: False
+  facebook: false
+  twitter: false
+  cover: false
 edgar:
   username: edgar
   name: Edgar Rice Burroughs
-  location: Chicago, Illinois
-  url_full: False
-  url: False
-  bio: I'm an American novelist, best known for my work writing about a brave jungle hero called Tarzan and his muse, Jane.
+  location: 'Chicago, Illinois'
+  url_full: false
+  url: false
+  bio: >-
+    I'm an American novelist, best known for my work writing about a brave
+    jungle hero called Tarzan and his muse, Jane.
   picture: assets/images/edgar.gif
-  facebook: False
-  twitter: False
-  cover: False
+  facebook: false
+  twitter: false
+  cover: false
 martin:
   username: martin
   name: Martin Luther King
-  location: Memphis, Tennessee
-  url_full: False
-  url: False
-  bio: An American pastor, activist, humanitarian. People know me for leading the African-American Civil Rights movement using nonviolent civil disobedience.
+  location: 'Memphis, Tennessee'
+  url_full: false
+  url: false
+  bio: >-
+    An American pastor, activist, humanitarian. People know me for leading the
+    African-American Civil Rights movement using nonviolent civil disobedience.
   picture: assets/images/martin.jpg
-  facebook: False
-  twitter: False
-  cover: False
-
+  facebook: false
+  twitter: false
+  cover: false
