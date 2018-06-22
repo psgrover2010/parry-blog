@@ -1,17 +1,15 @@
 ---
 layout: post
 current: post
-cover: assets/images/advanced.jpg
+cover: uploads/1.jpg
 navigation: true
 title: Second Post
 date: 2017-07-27 05:00:00
 tags:
   - Photography
-  - Features
-  - Austria
-  - Photo Story
-  - Destinations
 class: post-template
 subclass: post tag-getting-started
 author: parry
 ---
+
+![](/uploads/1.jpg)
