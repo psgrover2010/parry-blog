@@ -1,7 +1,7 @@
 ---
 layout: post
 current: post
-cover: fb-img-152931695.jpg
+cover: uploads/fb-img-152931695.jpg
 navigation: true
 title: Third post
 date: 2017-07-27 05:00:00
