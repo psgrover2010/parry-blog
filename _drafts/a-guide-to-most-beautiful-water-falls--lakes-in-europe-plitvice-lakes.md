@@ -1,7 +1,7 @@
 ---
 layout: post
 current: post
-cover: uploads/fb-img-1529316953122-1.jpeg
+cover: uploads/b-1.jpeg
 navigation: true
 title: >-
   A guide to most beautiful water falls & lakes in Europe-Plitvice Lakes /
@@ -70,7 +70,9 @@ If you have small kids, please bring a baby bjorn or be prepared to carry your l
 
 ![](/uploads/img-20180621-wa0011.jpg)
 
-![](/uploads/a-1.jpeg)
+&nbsp;
+
+![](/uploads/18767738-1274514949271047-2029293795831648420-n-1.jpeg)
 
 **Best Route to take**
 
@@ -100,4 +102,16 @@ If you have less time then choose this route as this is the shortest route of al
 * bring adequate rain and sun protection (umbrella, raincoat; sunglasses, hat, sunscreen – depending on the season)
 * check the weather forecast before going to the park
 
-By following the above tips I am sure you can improve your experience at Plitvice Lakes and avoid most of the crowds, even though visitor numbers are expected to rise even further as the word about this beautiful place gets out.
+By following the above tips I am sure you can improve your experience at Plitvice Lakes and avoid most of the crowds, even though visitor numbers are expected to rise even further as the word about this beautiful place gets out
+
+@Thevisits Photography
+
+![](/uploads/18920598-1274514755937733-2937071263634472098-n-1.jpeg)
+
+![](/uploads/1-1.jpg)
+
+![](/uploads/18813704-1274515142604361-7115505236484065191-n-1.jpeg)
+
+![](/uploads/a-1.jpeg)
+
+![](/uploads/18835950-1274515389271003-890620018146094644-n-1.jpeg)
