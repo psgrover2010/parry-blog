@@ -24,7 +24,7 @@ This website mission is to help you to save money while traveling, live your dre
 
 ## About Me
 
-For the past 12 years I am working in immigration world and helped people to relocate in different jurisdiction in this beautiful world. On July 9th 2016 my life took a drastic turn when I moved to world’s most liveable city — VIENNA, Austria.
+For the past 12 years I am working in immigration world and helped people to relocate in different jurisdiction in this beautiful world. In 2016 my life took a drastic turn when I moved to world’s most liveable city — VIENNA, Austria.
 
 ![](/uploads/fb-img-1529316953122-1.jpeg)
 
