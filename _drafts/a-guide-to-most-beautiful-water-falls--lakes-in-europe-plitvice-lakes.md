@@ -36,7 +36,7 @@ Daily ticket prices depend on the season. Ticket price includes a boat ride on t
 
 •180 kn (July 1 - Aug 31)
 
-Children aged 7 to 18 have cheaper tickets and children under the age of six go free. Students also get discounted entry, and groups of 15 or more (whether adults, students or children) can also get discounts (please check at the ticket counter before purchasing).
+Children aged 7 to 18 have cheaper tickets and children under the age of six go free. Students also get discounted entry, and groups of 15 or more (whether adults, students or children) can also get discounts (please ask for it at the ticket counter).
 
 **How to reach**
 
@@ -46,17 +46,17 @@ Plitvice Lakes visit can be done on a day trip from Zagreb or Zadar. By staying 
 
 * Drive from Zagreb (or Split/Zadar)- DC429 (Selište Drežničko – Prijeboj) from the direction of Zagreb/Zadar.
 * Once you reach then head to Entrance 1 and park your car in parking (not on the road). Parking is on hourly basis & costs approximately 7kn/hour.&nbsp;
-* You can purchase your ticket at the entrance and a map with the trail you wish to take (ask at the tourist office at the gate if you’re not sure).
+* You can purchase your ticket at the entrance and a map is free with which you can choose the trail you wish to take (ask at the tourist office at the gate if you’re not sure).
 * You can walk along the marked pathways & easily pass all lakes & various waterfalls.
 * There will be boat service including in your tickets which will take you to the other side of the lake.
-* &nbsp;try to spend anywhere from some 20-30 minutes to all day at the park (I recommend 3 to 4 hours in total).
+* Try to spend anywhere from some 20-30 minutes to all day at the park (I recommend 3 to 4 hours in total).
 * &nbsp;In the end, you can also hop on a tourist train (no extra cost as all inclusive in tickets) to take you back to the entrance.
 
 ![](/uploads/dsc-0936-1.jpeg)
 
 **B. The other way to get to Plitvice Lakes is by Bus (Public Transport).**
 
-The road DC429 is also used by the bus lines that connect the interior of Croatia&nbsp; with the coast. Please do not buy advance tickets if you are not sure on your return as all tickets are very much available on board. You can board any bus towards Plitvice or return to Zagreb/split and buy tickets in bus. I recommend that you check the current bus schedule on the website of the Zagreb Bus Station (http://www.akz.hr/en).
+The road DC429 is also used by the bus lines that connect the interior of Croatia&nbsp; with the coast. If you are not sure on your trip timelines then tickets are very much available on board. You can board any bus towards Plitvice or return to Zagreb/split and buy tickets in bus. I recommend that you check the current bus schedule on the website of the Zagreb Bus Station (http://www.akz.hr/en).
 
 **Can You Swim in the Lakes?**
 
@@ -69,8 +69,6 @@ Sorry for swimmer as swimming in Plitvice Lakes is forbidden. It’s a protected
 If you have small kids, please bring a baby bjorn or be prepared to carry your little ones as with a stroller, you won't be able to go far on the wooden boardwalks.
 
 ![](/uploads/img-20180621-wa0011.jpg)
-
-&nbsp;
 
 ![](/uploads/18767738-1274514949271047-2029293795831648420-n-1.jpeg)
 
