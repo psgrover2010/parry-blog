@@ -99,6 +99,9 @@ If you have less time then choose this route as this is the shortest route of al
 * wear the comfortable clothing and footwear as there will be plenty of walk
 * bring adequate rain and sun protection (umbrella, raincoat; sunglasses, hat, sunscreen – depending on the season)
 * check the weather forecast before going to the park
+* Check where the bathrooms are on the map, as there are not many bathrooms along the hiking trails.
+
+* you can carry your own food & picnic are allowed in park hence please plan ahead and pack a picnic lunch & enjoy your time overlooking the scenic lakes. Food inside the park is as expected overpriced.
 
 By following the above tips I am sure you can improve your experience at Plitvice Lakes and avoid most of the crowds, even though visitor numbers are expected to rise even further as the word about this beautiful place gets out
 
