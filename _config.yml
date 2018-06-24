@@ -27,8 +27,8 @@ facebook: thevisits # replace by your username
 instagram: thevisits_parrysingh
 
 # Disqus
-disqus: False
-disqus_shortname: jekyller # replace with your disqus username
+disqus: True
+disqus_shortname: thevisits-in # replace with your disqus username
 
 # Google Analytics
 google_analytics: UA-69281367-1 # replace with your GA tracking identifier
