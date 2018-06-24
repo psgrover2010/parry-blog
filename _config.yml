@@ -30,6 +30,7 @@ instagram: thevisits_parrysingh
 disqus_enabled: True
 disqus :
     shortname : thevisits-in # replace with your disqus username
+url: https://thevisits.in
 
 # Google Analytics
 google_analytics: UA-69281367-1 # replace with your GA tracking identifier
