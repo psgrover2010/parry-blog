@@ -4,9 +4,9 @@ current: post
 cover: uploads/b-1.jpeg
 navigation: true
 title: Thevisits Photography
-date: 2018-06-22 05:00:00
+date: 2018-06-25 00:00:00
 tags:
-  - Europe
+  - Photography
 class: post-template
 subclass: post tag-getting-started
 author: parry
@@ -15,5 +15,7 @@ author: parry
 Innsbruck, Austria
 
 The Nordkette- Stunning mountain complements Innsbruck, the Capital of the Alps.
+
+&nbsp;
 
 &nbsp;
