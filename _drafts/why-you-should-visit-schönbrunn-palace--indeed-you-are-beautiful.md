@@ -3,7 +3,9 @@ layout: post
 current: post
 cover: uploads/b-1.jpeg
 navigation: true
-title: 'Schönbrunn Palace in Vienna, Austria- Indeed you are as pretty as a picture'
+title: >-
+  Schönbrunn Palace in Vienna, Austria- Indeed you are pretty & as pretty as a
+  picture
 date: 2018-06-22 05:00:00
 tags:
   - Europe
