@@ -11,3 +11,9 @@ class: post-template
 subclass: post tag-getting-started
 author: parry
 ---
+
+Innsbruck, Austria
+
+The Nordkette- Stunning mountain complements Innsbruck, the Capital of the Alps.
+
+&nbsp;
