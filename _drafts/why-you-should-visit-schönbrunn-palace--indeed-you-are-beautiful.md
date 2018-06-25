@@ -9,6 +9,7 @@ title: >-
 date: 2018-06-22 05:00:00
 tags:
   - Europe
+  - Austria
 class: post-template
 subclass: post tag-getting-started
 author: parry
@@ -17,6 +18,16 @@ author: parry
 If you are in Vienna, Austria then your trip cannot complete without the visit of most beautiful attraction of Sch&ouml;nbrunn Palace. This place has more than 1400 room however only 40 can be shown publicly to visitors. Sch&ouml;nbrunn Palace is a UNESCO World Heritage Site and Austria’s most visited tourist attraction.
 
 This Palace is considered to be one of Europe’s most impressive Baroque palace and Austria’s most significant cultural monument.
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
 
 &nbsp;
 
