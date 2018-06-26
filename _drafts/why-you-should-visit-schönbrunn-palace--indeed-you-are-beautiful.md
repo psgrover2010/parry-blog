@@ -27,6 +27,8 @@ We witness a huge and beautiful famous Christmas market here and in Easter time 
 
 **Opening Times:**
 
+The palace is open daily, including public holidays.
+
 1 April to 30 June - (8 am to &nbsp;5.30 pm)
 
 1 July to 31 August - (8 am -to 6.30 pm)
@@ -51,28 +53,17 @@ There are many self tour with audio guide. I would suggest to take the grand tou
 
 **Things to know before you visit Sch&ouml;nbrunn Palace**
 
-There are many different tours and ticket options available depending on how much of the palace you want to see. All tours come with an audio guide.
-
-When you purchase your ticket, you will be assigned an entrance time. I was quite impressed with how the entrances were staggered every few minutes, as this prevented huge crowds of people trying to push through the rooms all at the same time.
-
-The palace is open daily, including public holidays. The palace always opens at 8:30 am. Closing times are 5:30 pm in the spring and fall, 6:30 pm in the summer and 5:00 pm in the winter.
-
-Ticket sales start at 8:15 am and last admission is 30 minutes before closing time.
-
-Park gates open daily at 6:30 am. Dogs are not allowed in the park.
-
-There is a cafe in the Gloriette if you work up an appetite wandering the gardens.
-
-Try and catch a classical music concert at the Orangery in the evening.
-
-The Vienna Card will give you a small discount on the price of admission.
+* All tours come with an self audio guide.
+* After purchasing a ticket, you will be assigned to particular entrance time. This is to avoid huge crowds of people trying to push through the rooms.
+* Ticket sales start 15 minutes before the first our starts i.e. 8:15 am.&nbsp;
+* Park gates open daily in early morning at 6:30 am. Pets are not allowed in the park.&nbsp;
+* There are plenty of cafe and resturants in garden and i like the most in the Gloriette as you can have sip in the morning walk while wandering the gardens.
+* If you have Vienna Card then you will get a small discount on the price of admission. check this at tickets counter before purchasing a ticket.&nbsp;
 
 **Recommended place to visit:**
 
-Palace are quite impressive and worth admiring if you are interested in History and original old things.<br>You will be able to see the original furnishing, King and Queen living standard, children room, study room etc unfortunately, no photography is allowed within the Palace.&nbsp;
+Palace are quite impressive and worth admiring if you are interested in History and original old things. You will be able to see the original furnishing, King and Queen living standard, children room, study room etc unfortunately, no photography is allowed inside the Palace.
 
 In addition to visiting the palace, it is also worth spending time in the Sch&ouml;nbrunn Garden and Park as well as the Palm House which is one of the largest green houses in the world.
 
-After our tour of the palace we went to explore the Sch&ouml;nbrunn gardens. Gardens are always my favourite part of palaces!
-
-(Sch&ouml;nbrunner Schlossstrasse&nbsp; 47, 1130 Vienna, Austria) www.schoenbrunn.at/en
+(Sch&ouml;nbrunner Schlossstrasse&nbsp; 47, 1130 Vienna, Austria) www.schoenbrunn.at/en&nbsp;
