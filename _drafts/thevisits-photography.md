@@ -15,3 +15,5 @@ author: parry
 Innsbruck, Austria
 
 The Nordkette- Stunning mountain complements Innsbruck, the Capital of the Alps.
+
+&nbsp;
