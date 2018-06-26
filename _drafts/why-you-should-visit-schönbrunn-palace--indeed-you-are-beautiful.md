@@ -41,13 +41,13 @@ Palace is child friendly however please keep an eye on your kids as visitors are
 
 Sch&ouml;nbrunn Palace is just a quick ride on the U-4 subway from centre station Karlsplatz. I would recommend to visit the palace & garden in morning time. Take U4 (green line) underground subway and get down at Sch&ouml;nbrunn station. Exit platform from lift side and go right opposite the traffic. It's just a 5-minute walk to main entrance.
 
-**Tickets price and Tour:**
+**Tickets, Price and Tour:**
 
-Would suggest to take the grand tour and explore all 40 rooms wherein you will see the state rooms and private apartment of Franz Joseph and Sisi.
+Tickets can be purchased at the entrance center at the main gate when you come in (on the left). Please expect a queue and a waiting time in peak season. At first do not stand in queue as if you can pay through credit/debit card then go in and find out self-machine on the left side & buy tickets your own if that has less number of people.
 
-This tour will cost you approximate EUR 18 per adults and EUR 12 aged between 6 to 18.
+You will get the tickets for next tour which will start in another hour & so hence you will get few more minuets before you go in. Bags can be stored at tour entrance & you can carry baby stroller as palace is very much wheelchair accessible. &nbsp;&nbsp;
 
-You can explore the imperial rooms with a guided tour which will obviously cost you some more bucks however would recommend to explore on your own with a tour description/audio guide which is free of charge.
+There are many self tour with audio guide . I would suggest to take the grand tour and explore all 40 rooms wherein you will see the state rooms and private apartment of Franz Joseph and Sisi. You can explore the imperial rooms with a guided tour which will obviously cost you some more bucks however would recommend to explore on your own with a tour description/audio guide which is free of charge. This grand tour will cost you approximate EUR 18 per adults and EUR 12 aged between 6 to 18.
 
 Tips for Visiting Sch&ouml;nbrunn Palace
 
