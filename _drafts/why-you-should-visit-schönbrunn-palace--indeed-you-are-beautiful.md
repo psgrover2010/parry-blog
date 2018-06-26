@@ -19,17 +19,13 @@ If you are in Vienna, Austria then your trip cannot complete without the visit o
 
 This Palace is considered to be one of Europe’s most impressive Baroque palace and Austria’s most significant cultural monument.
 
-&nbsp;
+![](/uploads/01.jpeg)
 
-&nbsp;
+Living in a city and exploring bit by bit is completely a different experience. Sch&ouml;nbrunn has natural beauty in all season specially winter is amazing & if you are visiting in spring then it is a very calm time at Sch&ouml;nbrunn Palace. Strolling through the park is a wonderful experience in all seasons.
 
-&nbsp;
+We witness a huge and beautiful famous Christmas market here and in Easter time people love to taste the gluhwein to keep them self-warm.
 
-&nbsp;
-
-&nbsp;
-
-&nbsp;
+Sch&ouml;nbrunn Palace is just a quick ride on the U-4 subway from centre station Karlsplatz. I would recommend to visit the palace & garden in morning time. Approximately 8 to 9 million people visits the &nbsp;Sch&ouml;nbrunn Palace, park and its attractions each year.
 
 Opening Times:
 
