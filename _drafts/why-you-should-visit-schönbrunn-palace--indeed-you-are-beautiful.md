@@ -43,13 +43,13 @@ Sch&ouml;nbrunn Palace is just a quick ride on the U-4 subway from centre statio
 
 **Tickets, Price and Tour:**
 
-Tickets can be purchased at the entrance center at the main gate when you come in (on the left). Please expect a queue and a waiting time in peak season. At first do not stand in queue as if you can pay through credit/debit card then go in and find out self-machine on the left side & buy tickets your own if that has less number of people.
+Tickets can be purchased at the entrance center at the main gate when you come in (on the left). Please expect a queue and a waiting time in peak season. At first, don't stand in queue as if you can pay through credit/debit card then go in and find out self-machine on the left side & buy tickets your own if that has less number of people.
 
-You will get the tickets for next tour which will start in another hour & so hence you will get few more minuets before you go in. Bags can be stored at tour entrance & you can carry baby stroller as palace is very much wheelchair accessible. &nbsp;&nbsp;
+You will get the tickets for next tour which will start in another hour & so hence you will get few more minuets before you go in. There is beautiful view on the back side of palace in case you want to explore before your tour starts. Bags can be stored at tour entrance & you can carry baby stroller as palace is very much wheelchair accessible. &nbsp;&nbsp;
 
-There are many self tour with audio guide . I would suggest to take the grand tour and explore all 40 rooms wherein you will see the state rooms and private apartment of Franz Joseph and Sisi. You can explore the imperial rooms with a guided tour which will obviously cost you some more bucks however would recommend to explore on your own with a tour description/audio guide which is free of charge. This grand tour will cost you approximate EUR 18 per adults and EUR 12 aged between 6 to 18.
+There are many self tour with audio guide. I would suggest to take the grand tour and explore all 40 rooms wherein you will see the state rooms and private apartment of Franz Joseph and Sisi. You can explore the imperial rooms with a guided tour which will obviously cost you some more bucks however would recommend to explore on your own with a tour description/audio guide which is free of charge. This grand tour will cost you approximate EUR 18 per adults and EUR 12 aged between 6 to 18.
 
-Tips for Visiting Sch&ouml;nbrunn Palace
+**Things to know before you visit Sch&ouml;nbrunn Palace**
 
 There are many different tours and ticket options available depending on how much of the palace you want to see. All tours come with an audio guide.
 
