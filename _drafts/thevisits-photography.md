@@ -12,6 +12,6 @@ subclass: post tag-getting-started
 author: parry
 ---
 
-&nbsp;
+![](/uploads/20180619_104540.jpg)
 
 &nbsp;
