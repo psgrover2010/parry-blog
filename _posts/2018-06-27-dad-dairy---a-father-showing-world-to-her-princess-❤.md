@@ -6,7 +6,7 @@ navigation: true
 title: Dad Dairy - "A father showing world to her princess" ❤
 date: 2018-06-27 09:00:00
 tags:
-  - Photo Story
+  - PHOTO STORY
 class: post-template
 subclass: post tag-getting-started
 author: parry
