@@ -8,6 +8,7 @@ date: 2018-06-27 09:00:00
 tags:
   - Photostory
   - Austria
+  - Europe
 class: post-template
 subclass: post tag-getting-started
 author: parry
