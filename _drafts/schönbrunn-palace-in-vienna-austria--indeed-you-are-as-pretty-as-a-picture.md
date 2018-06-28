@@ -19,6 +19,10 @@ This Palace is considered to be one of Europe’s most impressive Baroque palace
 
 ![](/uploads/01.jpeg)
 
+&nbsp;
+
+&nbsp;
+
 Living in a city and exploring bit by bit is completely a different experience. Sch&ouml;nbrunn has natural beauty in all season especially spring & winter are amazing seasons & if you are visiting in spring then it is a very calm time at Sch&ouml;nbrunn Palace. Strolling through the park is a wonderful experience in all seasons.We witness a huge and beautiful famous Christmas market here and in Easter time people love to taste the gluhwein to keep them self-warm with surrounding beauty. **Opening Times:**
 
 The palace is open daily, including public holidays.
