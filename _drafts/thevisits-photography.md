@@ -44,52 +44,22 @@ Photo
 
 &nbsp;
 
-Marjan is a hill on the peninsula of the city of Split, the second largest city of Croatia. It is covered in a dense Mediterranean pine forest and completely surrounded by the city and the sea, making it a unique sight.
+Park is open all year round and the best time to visit is in the morning. According to Law on protection of natural environment of the Republic of Croatia, Park-forest Marjan is the area under special regulations. Therefore, witin the entire area of the park-forest, it is strictly prohibited to smoke or use any kind of open flame!
 
-General Info
-
-Park is open all year round and the best time to visit is in the morning. According to Law on protection of natural environment of the Republic of Croatia, Park-forest Marjan is the area under special regulations.
-
-THEREFORE, WITHIN THE ENTIRE AREA OF THE PARK-FOREST,
-
-IT IS STRICTLY PROHIBITED TO SMOKE OR USE ANY KIND OF OPEN FLAME!&nbsp;
-
-&nbsp; no open flame or fire
-
-&nbsp; no camping
-
-&nbsp; do not make noise
-
-&nbsp; do not destruct vegetation
-
-&nbsp; dogs - always on a leash
-
-&nbsp; preserve and keep environment safe
-
-&nbsp; no cars, only public transport&nbsp;&nbsp;
-
-How to Explore
-
-Many, many steps (no wonder the people of Split are so trim and fit!) take you from the Veli Varos neighborhood up and up until you come to Cafe Bar Vidilica with a splendid view that encompasses all Split and a good number of its off-shore islands. In the nearby forest is the old Jewish cemetery which can be visited. If the gate is locked, ask at the Cafe Vidilica for the key. (see more about Jewish heritage in Split)
-
-To the north of the cemetery is a path leading to Prvi Vrh and a very small zoo. Continue climbing and you'll come to Telegrin, the top of Marjan at 175m.
-
-To the south of the Jewish cemetery, a path ascends to a smaller plateau and the Romanesque church of St Nikolas, a small rustic early 13th century AD church.
-
-Continue westward below Betlem Church, then by the 15th-century church of St Jere. Follow the path as it winds west through the forest downhill to Bene Beach.
-
-At the foot of Marjan hill are several of Split's most interesting museums, including the Mestrovic Gallery and the Museum of Croatian Archaeological Monuments. And some of Split's best beaches lie at the foot of Marjan hill.
-
-Recommendation
-
-&nbsp; wear the comfortable clothing and footwear as there is plenty of walk
-
-&nbsp; bring adequate rain and sun protection (umbrella, raincoat; sunglasses, hat, sunscreen – depending on the season)
+I must say this hiking has many, many steps (no wonder why the people of Split are so trim and fit!) take you from the Veli Varos neighborhood up and up until you come to Caf&eacute; Bar Vidilica with a splendid view that encompasses all Split and a good number of its off-shore islands. At the foot of Marjan hill are several of Split's most interesting museums, including the Mestrovic Gallery and the Museum of Croatian Archaeological Monuments. And some of Split's best beaches lie at the foot of Marjan hill.
 
 How to reach
 
 Bus line 12 which will take you to the most popular beaches on Marjan hill. However, there are no buses that will get you all the way up the hill, but you can get a taxi to take you most of the way. The cost would be 50kn or so from the center of town.
 
 #### 6. Luggage storage in Split
+
+&nbsp;
+
+Luggage storage in Split can be found inside the bus station building. Working hours during the summer season are from 06:00 till 22:00 and during the rest of the year from 07:00 till 21:00; the price is approximately 5 kuna for the first hour and 1.50 kuna for every next hour.
+
+In case there is no space left for your luggage there you can also use the luggage storage of the railway station which is next to the bus station (working hours are from 06:00 till 22:00, the price is 15 kuna for 24 hours).
+
+&nbsp;
 
 &nbsp;
