@@ -41,11 +41,9 @@ Palace is child friendly however please keep an eye on your kids as visitors are
 
 **How to reach:**
 
-Sch&ouml;nbrunn Palace is just a quick ride on the U-4 subway from centre station Karlsplatz. I would recommend to visit the palace & garden in morning time. Take U4 (green line) underground subway and get down at Sch&ouml;nbrunn station. Exit platform from lift side and go right opposite the traffic. It's just a 5-minute walk to main entrance.
+Sch&ouml;nbrunn Palace is just a quick ride on the U-4 subway from centre station Karlsplatz. I would recommend to visit the palace & garden in morning time. Take U4 (green line) underground subway towards H&uuml;tteldorf and get down at Sch&ouml;nbrunn station. Exit platform from lift side and go right opposite the traffic. It's just a 5-minute walk to main entrance. You can also reach by Tram line 10 & 60 and bus 10A. &nbsp;
 
 Photo
-
-&nbsp;
 
 **Tickets, Price and Tour:**
 
@@ -55,7 +53,7 @@ Photo
 
 &nbsp;
 
-You will get the tickets for next tour which will start in another hour & so hence you will get few more minuets before you go in. There is a beautiful view on the back side of palace in case you want to explore before your tour starts. Bags can be stored at tour entrance & you can carry baby stroller in as palace is very much wheelchair accessible.
+You will get the tickets for next tour which will start in another hour & so hence you will get few more minuets before you go in. There is a beautiful view on the back side of palace in case you want to explore before your tour starts. After purchasing a tickets, bags can be stored at tour entrance & you can carry baby stroller in as palace is very much wheelchair accessible.
 
 Photo
 
