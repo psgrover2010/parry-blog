@@ -21,9 +21,7 @@ This Palace is considered to be one of Europe’s most impressive Baroque palace
 
 ![](/uploads/DSC_0351-01.jpeg)
 
-Living in a city and exploring bit by bit is completely a different experience. Sch&ouml;nbrunn has natural beauty in all season especially spring & winter are amazing seasons & if you are visiting in spring then it is a very calm time at Sch&ouml;nbrunn Palace. Strolling through the park is a wonderful experience in all seasons. We witness a huge and beautiful famous Christmas market here and in Easter time people love to taste the gluhwein to keep them self-warm with surrounding beauty.
-
-![](/uploads/DSC_0359-01.jpeg)
+Living in a city and exploring bit by bit is completely a different experience. Sch&ouml;nbrunn has natural beauty in all season especially spring & winter are amazing seasons & if you are visiting in spring then it is a very calm time at Sch&ouml;nbrunn Palace. Strolling through the park is a wonderful experience in all seasons.
 
 ![](/uploads/DSC_0372-01.jpeg)
 
@@ -79,5 +77,9 @@ Palace are quite impressive and worth admiring if you are interested in History 
 In addition to visiting the palace, it is also worth spending time in the Sch&ouml;nbrunn Garden and Park as well.&nbsp;
 
 ![](/uploads/fb-img-1529316953122-1.jpeg)
+
+&nbsp;
+
+&nbsp;
 
 (Sch&ouml;nbrunner Schlossstrasse&nbsp; 47, 1130 Vienna, Austria) www.schoenbrunn.at/en
