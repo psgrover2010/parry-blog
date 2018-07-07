@@ -74,23 +74,33 @@ There are many self-tour with audio guide. I would suggest to take the grand tou
 
 ![Gloriette](/uploads/20180707_160013.jpg "Gloriette")
 
-**Recommended place to visit:**
+**Recommended place to visit in Sch&ouml;nbrunn:**
 
 Palace are quite impressive and worth admiring if you are interested in History and original old things. You will be able to see the original furnishing, King and Queen living standard, children room, study room etc unfortunately, NO photography allowed inside the Palace.
 
 In addition to visiting the palace, it is also worth spending time in the Sch&ouml;nbrunn Garden and Park as well.&nbsp;
 
-![](/uploads/fb-img-1529316953122-1.jpeg)
+* Gloriette: This place provide you impressive top view and amazing cafe break.
+* Irrgarten Maze: A place where all age people can relax, play and enjoy.
+* Sch&ouml;nbrunn Zoo: A world oldest and best zoo in Europe. It's a home to more than 700 animal species.
+* Palm House: This house is one of the largest botanical glasshouses in Europe and plant lover will love this place as this has huge variety of plant species which grow in three different climatic zone.&nbsp;
+* Imperial Carriage & children Museum: Here you can expereince&nbsp;
 
-![](/uploads/DSC_0021_1-01.jpeg)
+&nbsp;
 
-![](/uploads/20180707_160251.jpg "A top view from Gloriette")
+![Top Panorama view](/uploads/20180707_160251.jpg "Top Panorama view")
+
+![It's Mee- Feeling the winter](/uploads/fb-img-1529316953122-1.jpeg "It's Mee- Feeling the winter")
+
+![Garden Area](/uploads/DSC_0021_1-01.jpeg "Garden Area")
+
+&nbsp;
 
 ![](/uploads/DSC_0053_1-01.jpeg)
 
-Explore surrounding on Carriage&nbsp;
+**Explore surrounding on carraige:&nbsp;**&nbsp;
 
-![](/uploads/DSC_0010-01.jpeg)
+![Mr. Joe with his carriage](/uploads/DSC_0010-01.jpeg "Mr. Joe with his carriage")
 
 &nbsp;
 
