@@ -72,6 +72,8 @@ There are many self-tour with audio guide. I would suggest to take the grand tou
 * There are plenty of cafe and resturants in garden and I like the most in the Gloriette as you can have sip in the morning walk while wandering the gardens.
 * If you have Vienna Card then you will get a small discount on the price of admission. check this at tickets counter before purchasing a ticket.&nbsp;
 
+![Gloriette](/uploads/20180707_160013.jpg "Gloriette")
+
 **Recommended place to visit:**
 
 Palace are quite impressive and worth admiring if you are interested in History and original old things. You will be able to see the original furnishing, King and Queen living standard, children room, study room etc unfortunately, NO photography allowed inside the Palace.
@@ -82,6 +84,22 @@ In addition to visiting the palace, it is also worth spending time in the Sch&ou
 
 ![](/uploads/DSC_0021_1-01.jpeg)
 
-![](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAAEAAAABCAYAAAAfFcSJAAAADUlEQVQYV2NYtWrVfwAG/gL+NbCogwAAAABJRU5ErkJggg==){: .cms-image-placeholder}
+![](/uploads/20180707_160251.jpg "A top view from Gloriette")
+
+![](/uploads/DSC_0053_1-01.jpeg)
+
+Explore surrounding on Carriage&nbsp;
+
+![](/uploads/DSC_0010-01.jpeg)
+
+&nbsp;
+
+&nbsp;
+
+![](/uploads/DSC_0055-01.jpeg)
+
+&nbsp;
+
+&nbsp;
 
 (Sch&ouml;nbrunner Schlossstrasse&nbsp; 47, 1130 Vienna, Austria) www.schoenbrunn.at/en
