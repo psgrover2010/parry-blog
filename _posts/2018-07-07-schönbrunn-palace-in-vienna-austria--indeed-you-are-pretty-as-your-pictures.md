@@ -1,7 +1,7 @@
 ---
 layout: post
 current: post
-cover: uploads/DSC_0008-01 (1).jpeg
+cover: uploads/DSC_0007_1-01 (1).jpeg
 navigation: true
 title: 'Schönbrunn Palace in Vienna, Austria- Indeed you are pretty as your pictures'
 date: 2018-07-07 00:00:00
