@@ -51,7 +51,7 @@ Sch&ouml;nbrunn Palace is on the U-4 subway and easily reachable from anywhere w
 
 **Tickets, Price and Tour:**
 
-Tickets can be purchased at the entrance center at the main gate when you come in (on the left). Please expect a queue and a waiting time in peak season. At first, don't stand in queue as if you can pay through credit/debit card then go in and find out self-machine on the left side & buy tickets your own.
+Tickets can be purchased at the entrance center at the main gate when you come in (on the left). Please expect a queue and a waiting time in peak season. At first, don't stand in queue as if you can pay through credit/debit card then go in and find out self-machine on the left side & buy tickets your own. If you want to avoid the crowd then visit the palace before 10 or after 14:00.&nbsp;
 
 ![](/uploads/tickets.jpg)
 
@@ -81,12 +81,14 @@ Palace are quite impressive and worth admiring if you are interested in History 
 In addition to visiting the palace, it is also worth spending time in the Sch&ouml;nbrunn Garden and Park as well.&nbsp;
 
 * Gloriette: This place provide you impressive top view and amazing cafe break.
-* Irrgarten Maze: A place where all age people can relax, play and enjoy.
-* Sch&ouml;nbrunn Zoo: A world oldest and best zoo in Europe. It's a home to more than 700 animal species.
-* Palm House: This house is one of the largest botanical glasshouses in Europe and plant lover will love this place as this has huge variety of plant species which grow in three different climatic zone.&nbsp;
-* Imperial Carriage & children Museum: Here you can expereince&nbsp;
 
-&nbsp;
+* Irrgarten Maze: A place where all age people can relax, play and enjoy.
+
+* Sch&ouml;nbrunn Zoo: A world oldest and best zoo in Europe. It's a home to more than 700 animal species. Free entry with Vienna Pass.
+
+* Palm House: This house is one of the largest botanical glasshouses in Europe and plant lover will love this place as this has huge variety of plant species which grow in three different climatic zone.&nbsp;
+
+* Imperial Carriage & Children Museum: Here you can experience lots of interesting facts about of imperial children, Maria Theresa, Napoleon, Franz Joseph & Sisi. There are various descriptions written in different languages.&nbsp;
 
 ![Top Panorama view](/uploads/20180707_160251.jpg "Top Panorama view")
 
@@ -98,17 +100,19 @@ In addition to visiting the palace, it is also worth spending time in the Sch&ou
 
 ![](/uploads/DSC_0053_1-01.jpeg)
 
-**Explore surrounding on carraige:&nbsp;**&nbsp;
+**Explore surrounding on carraige/Panorama Train:**
+
+There are carriage & Panorama train very much available in the sight. All the major attractions at this huge 400-acre world heritage site can be easily reachable. Panorama train tour takes you everywhere with hop-on hop-off benefits wherein carriage tour gives you relaxation and enjoyment of all surrounding & views.
+
+Mr. Joe has very reasonable rates and available at the entrance starting from first tour of the palace. Adults charges are Euro 7 & Children Euro 4, Children below 3 years are free. Panorama train has fixed timing however Joe can take you when he has full of passengers in his carriage.
+
+If you are short of time and then rent the private carriage which will cost you Euro 65.**&nbsp;**&nbsp;
 
 ![Mr. Joe with his carriage](/uploads/DSC_0010-01.jpeg "Mr. Joe with his carriage")
 
-&nbsp;
+![Private carriage](/uploads/DSC_0055-01.jpeg "Private carriage")
 
-&nbsp;
-
-![](/uploads/DSC_0055-01.jpeg)
-
-&nbsp;
+![Panorama Train Details](/uploads/panorama-train-details.jpeg "Panorama Train Details")
 
 &nbsp;
 
