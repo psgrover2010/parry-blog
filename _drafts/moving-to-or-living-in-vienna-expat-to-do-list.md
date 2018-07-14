@@ -13,25 +13,45 @@ subclass: post tag-getting-started
 author: parry
 ---
 
-I wish someone told me this list before I moved in Vienna then I could have planned in my childhood :). I must say moving to a new country can certainly&nbsp;
+I wish someone would have told me this list before I moved here then I could have planned in my childhood. I must say moving to a new country can certainly a big change in my life, no matter how much you are traveling before, and have knowledge and experience. Living in a country & daily experience can give you intercultural learning.
+
+Undoubtedly, Vienna is a beautiful place to live in ( and one of the major tourist destination in Europe) and i don’t regret all all on my decision. I decided to write this post which will be bit different than the rest of the stories.
+
+**Disclaimer:** If in this post there is something that counterbalance you – please have peace. We live under same sky, can breath same air and can have different opinions.
+
+#### 1. First thing first - Immigration and registration
+
+European Union / European Free Trade Association residents can enter in Austria without requiring a visa and can remain in the country visa-free, apart from those arriving from Croatia which still faces restrictions on long stays. However, anyone from the EU/EFTA staying for longer than four months will need to register locally in Magistrate office.
+
+Those from outside the EU/EFTA moving to Austria will need to apply for a respective residence permit to stay in the country. For more information regarding Immigration rule & registration &nbsp;requirement i recommend to ask best law firm in Vienna, http://www.oberhammer.co.at/en.
+
+#### 2. Where to live and how to find best accommodation
+
+#### &nbsp;
+
+Vienna has 23 districts in total and each Bezirk (districts) of the city has their own life-style. Choosing your district can often define your lifestyle in the city. It is easy to &nbsp;recognize the district by its zip code. It always start with a 1 for Vienna, followed by the two digits for the district and finally a number for a mailing sub-division (usually zero).
+
+1010 = 1st district
+
+1020 = 2nd district
+
+.
+
+.
+
+.
+
+1200 = 20th district
+
+District: 1st (Innere Stadt-1010) & 2nd (Leopoldstadt-1020)
+
+Living here… will cost you high to low. District one is the main city centre, with numerous historical sites and very few residents. It can be in a penthouse or historic building. Second district is the island between the Danube and the Danube Canal, with amusement park Praterstern and this place is the Vienna's most frequented traffic spot, with Giant Wheel. Living here will escapes high rent prices.
+
+Rent price range: Low to medium (1020) & High (1010)
 
 &nbsp;
 
-Moving to a new country can certainly be a very strong life experience. No matter how much I was travelling before, and all the knowledge and experience I had accumulated on intercultural learning, culture shock and stuff like that, the fact of actually moving to Prague, Czech Republic in 2015 still hit me like a truckload of bricks.
-
-Granted, Prague is a wonderful place to live in (and one of the main tourist destinations in Europe) and I don’t regret at all my decision. Still, at times it may be hard. That’s why I decided to write this post which will be a bit sillier than the rest of the stories I publish on this blog.
-
-Hope is, this may help others not to make the same mistake and never leave home to adapt more easily when moving to a different country. Or maybe not, but it feels very liberating to be able to put these thoughts in plain text. And anyway, learning about a different culture is also the best way to learn about our own culture, and ourselves
-
-Disclaimer: If in the post there is something that offsets you – hey, peace. We can breathe the same air and have different opinions on stuff. Hard to believe, but it’s possible. Maybe you don’t like the music, but please don’t shoot the pianist.
-
-Immigration and registration after you arrive
-
-EU/EFTA residents (along with their close relatives) can enter the Netherlands without requiring a visa and can remain in the country visa-free, apart from those arriving from Croatia which still faces restrictions on long stays. However, anyone from the EU/EFTA staying for longer than four months will need to register and obtain a citizen service number.
-
-Those from outside the EU/EFTA moving to the Netherlands will need to apply for a long-term entry visa (MVV) to enter the Netherlands and a residence permit to stay in the country for longer than three months. You will need the MVV to enter the Netherlands, and you collect the residence permit from the local immigration service (IND) office within two weeks of arrival.
-
-For more information on all aspects of immigration to the Netherlands, see our &nbsp;complete guide to Dutch visas and permits.
+&nbsp;
 
 Health insurance and social security benefits
 
@@ -129,13 +149,13 @@ Miete = rent
 
 The top websites to look for an apartment
 
-+ Willhaben
+* Willhaben
 
-+ Toprop
+* Toprop
 
-+ Der Standard
+* Der Standard
 
-3. First things first, get the holy Meldezettel
+1. First things first, get the holy Meldezettel
 
 The holy document known as the Meldezettel is your proof of existence in this city. Without it, you don’t exist in the eyes of the state. You need it to apply for everything, from a library card to getting your social security number, and ordering takeaway from your local Indian eatery (ok, maybe we made that last one up). It’s simple to get, and you’ll find more info. about how, here.
 
@@ -149,29 +169,29 @@ Moving to a new city can be like the first day of school all over again (perhaps
 
 Otherwise, here’s a list of communities where you can find them
 
-+ Internations Vienna (a professional expat networking group hosting regular events)
+* Internations Vienna (a professional expat networking group hosting regular events)
 
-+ Vienna Expats (a mixed group of expats meeting on a regular basis in a casual setting)
+* Vienna Expats (a mixed group of expats meeting on a regular basis in a casual setting)
 
-+ Women of Vienna
+* Women of Vienna
 
-+ Vienna & Diplomatic (an online club that offers luxury items at exclusive prices for expats and Diplomats and hosts regular events)
+* Vienna & Diplomatic (an online club that offers luxury items at exclusive prices for expats and Diplomats and hosts regular events)
 
-+ Vienna Business Agency Expat club (A good club for expats in business)
+* Vienna Business Agency Expat club (A good club for expats in business)
 
-+ AWA (A international group of Expat women helping and connecting women in Vienna.
+* AWA (A international group of Expat women helping and connecting women in Vienna.
 
-+ Vienna Babies Club (a expat network of international families)
+* Vienna Babies Club (a expat network of international families)
 
 Expat Facebook groups
 
-+ English speakers in Vienna
+* English speakers in Vienna
 
-+ British in Vienna
+* British in Vienna
 
-+ Americans in Vienna
+* Americans in Vienna
 
-6. Language is hard. I mean: real hard.
+1. Language is hard. I mean: real hard.
 
 No, seriously. Sources disagree, but I read that it’s one of the hardest in Europe, and possibly in the world. It’s estimated that a person needs about 4 years of study to reach fluency (and I am not studying).
 
@@ -185,19 +205,19 @@ Take a verdammten German course: learning the language
 
 While most speak fluent English in this city, they say (who ever they are) that you live a new life for every new language you speak. Well, we suggest you get started with your new Vienna life with ze’ language of its soul – German. Ok, well, the Viennese’s wild and wonderful version of German – Wienerisch. However, Viennese you’ll learn on the street, but first you need to sign yourself up for a German course. Don’t lock yourself away in an expat bubble. Doors open in this city when you learn to sweet talk in ze’ German. Denglish (German with English words scattered throughout) is also accepted as a charming alternative, as well. Here’s a few places to learn your German that we recommend:
 
-+ Deutschakademie (cheap intensive courses)
+* Deutschakademie (cheap intensive courses)
 
-+ Universit&auml;t Wien Deutschkurs (this one comes highly recommended, intensive semester courses at the University for very low prices)
+* Universit&auml;t Wien Deutschkurs (this one comes highly recommended, intensive semester courses at the University for very low prices)
 
-+ i-diom: Professionelles Sprachtraining (for a professional German course)
+* i-diom: Professionelles Sprachtraining (for a professional German course)
 
-7. Live like a local: dive into Austrian culture
+1. Live like a local: dive into Austrian culture
 
 Don’t be one of those expats that bring their habits and cultural etiquette from home, cling to it for dear life and spend their whole time comparing home with here – news flash: you’re living in a different country! While after the honeymoon period of first moving to Vienna wears off, many expats are tempted to indulge in a bit of ‘verbal-Austrian-bashing’ for the rude service, their anal ways, their rigid mentality, their sleepy lock-down Sundays, amongst other things. We recommend refraining from such verbal farts. This will only take your eye off the place you’re living in – an eccentric, individual kind of city that has a bundle of charming characteristics. Spend your time getting to know Vienna’s wine and wandering culture on the fringe of the city, the ‘Schaumamalmal’ work-life balance, the pleasure of coffeehouse procrastination, the culture and classical music on tap, and the many grassroot creative stuff happening in the city. Vienna will not serve itself to you on a platter. It plays hard-to-get, hide and seek with you, and dares you to explore and live it independently.
 
 Where to shop for stuff from home
 
-11. Make your smartphone Vienna-ready
+1. Make your smartphone Vienna-ready
 
 The following are some helpful apps for when you’re living in Vienna.
 
