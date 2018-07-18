@@ -15,7 +15,7 @@ author: parry
 
 I wish someone would have told me this list before I moved here then I could have planned in my childhood. I must say moving to a new country can certainly a big change in my life, no matter how much I was traveling before, and have knowledge and experience. Living in a country & daily experience always give intercultural learning.
 
-Undoubtedly, Vienna is a beautiful place to live in ( and one of the major tourist destination in Europe) and i don’t regret all all on my decision. I decided to write this post which will be bit different than the rest of the stories.
+Undoubtedly, Vienna is a beautiful place to live in ( and one of the major tourist destination in Europe) and i don’t regret at all on my decision. I decided to write this post which will be bit different than the rest of the stories.
 
 **Disclaimer:** If in this post there is something that counterbalance you – please have peace. We live under same sky, can breath same air and can have different opinions.
 
@@ -55,11 +55,11 @@ District: 5th (1050), 6th (1060), 7th (1070) & 8th (1080)
 
 Living here… will cost you medium to high. District 5th has lowest rent in the city & living here can be neighbourhood to multicultural. In others district, you will have many options for Sunday brunch & dining out at your doorstep. Except 5th other district are close to main shopping lane & University.
 
-District: 9th (1090), 10th (1100), 12th (1120), 13th (1130) & 14th (1140)
+District: 9th (1090), 10th (1100), 11th ( 1110), 12th (1120), 13th (1130) & 14th (1140)
 
-Living here… will cost you medium to high. District 5th has lowest rent in the city & living here can be neighbourhood to multicultural. In others district, you will have many options for Sunday brunch & dining out at your doorstep. Except 5th other district are close to main shopping lane & University.
+Living here… will cost you medium to high. District 5th has lowest rent in the city & living here can be neighbourhood to multicultural. In others district, you will have many options for Sunday brunch & dining out at your doorstep. shopping lane & University are also closure.
 
-District: 15th (1150), 16th (1160), 17th (1170), 18th (1180) & (1190)
+District: 15th (1150), 16th (1160), 17th (1170), 18th (1180) & 19th (1190)
 
 Living here....will cost you low to very high. In 15th & 16th you may pay low rent with multicultural neighbourhood wherein others districts has lavish life wherein you can rent a villa & be surrounded by green areas and vineyards, have a garden & live the good life.
 
