@@ -71,53 +71,15 @@ Living here.....will cost you medium to high. you will be close to Danube river 
 
 &nbsp;
 
-Both health insurance and social security payments are mandatory for all Dutch residents. Most long-term Dutch residents will be eligible for public health insurance. Private health insurance is also available for those who can't access public health insurance or want to be covered for extra treatments. Most foreign residents who move to the Netherlands are required to obtain public health insurance within four months of receiving their residence permit. Residents from EU/EFTA countries on short stay visits can use their European Health Insurance Card (EHIC) but will need to switch to Dutch health insurance if staying for longer than a year.
+Both health insurance and social security payments are mandatory for all Austria residents. All long-term residents will be eligible for public health insurance. Private health insurance is also available for those who can't access public health insurance or want to be covered for extra treatments. Most foreign residents who move to the Austria are required to obtain public health insurance. Residents from EU/EFTA countries on short stay visits can use their European Health Insurance Card (EHIC) but will need to switch to Austria health insurance if staying for longer.
 
-The cost of Dutch health insurance is expensive compared to other European countries, with 6.75 percent of salaries covering basic medical care and 9.65 percent covering long-term nursing and care, but the Dutch healthcare system is of high quality and is rated as the best in Europe.
+#### 4. Opening a bank account in the Austria
 
-Social security contributions are mandatory for all, regardless of employment status, although some exceptions do exist. Details of exemptions can be found on the Dutch Social Security (SVB) website. The Dutch social security system is one of the most comprehensive in Europe and covers family benefits, maternity and paternity leave, unemployment benefits, long-term care, sickness leave and disability benefits.
+&nbsp;
 
-For more information, see our guides to health insurance in the Netherlands, the Dutch healthcare system and the Dutch social security system.
-
-Opening a bank account in the Netherlands
-
-Opening a bank account when you move to the Netherlands is fairly straightforward. Most banks will have English-speaking staff and there are also financial providers who cater specifically for expat clients. To open a Dutch bank account, you will usually need to have valid ID (plus residence permit if applicable), your citizen service number (BSN) and proof of address. You may also be asked for proof of income, such as a payslip.
+Opening a bank account when you move to the Austria is fairly straightforward. Most banks will have English-speaking staff and there are also financial providers who cater specifically for expat clients. To open a Austria bank account, you will usually need to have valid ID and proof of address. You may also be asked for proof of income, such as a payslip.
 
 Most Dutch banks offer online banking. Credit cards and international money transfers are also commonly available although they are quite expensive.
-
-Find out how to open a Dutch bank account.
-
-District: 6th (1060), 7th (1070) & 8th (1080)
-
-Live here if you want… to walk home after a night out, to have a vast selection of Sunday brunch options at your doorstep, to spend most of your income on dining out, to spend more money on haircuts than most people do on their yearly holiday, to be single and looking, to enjoy afterwork drinks, absolutely loving your district, your neighbour to be a funky elegantly-dressed old lady or gentleman (1080), live on a cobblestone street
-
-Rent price range: medium to high
-
-The laid-back neighbourhoods with soul
-
-Where: 3rd (Landstra&szlig;e, 1030), 4th (Wieden, 1040)
-
-Live here if you want… to know your neighbour, be greeted warmly when you get your regular coffee or breakfast from your local bakery or caf&eacute;, live close to the city’s largest green space and great running paths (1030), live in the less hyped hip district where the young artists live (1040), have a comfortable space for your young family (1030), good vibes in the neighbourhood
-
-Rent price range: both of these districts are still relatively well-priced, but both are becoming increasingly popular, meaning rent prices are being pushed up
-
-The underestimated neighbourhoods with character
-
-Where: 20th (Brigittenau, 1200), 15th (F&uuml;nfhaus, 1150), 16th (Ottakring, 1160), 5th (Margareten, 1050), 10th (Favoriten, 1100)
-
-Live here if you want… to pay some of the lowest rent in the city, live in a multicultural neighbourhood, live in a area less manicured and more lived in, shop for cheap, escape to green areas on a regular basis, discover hidden treasures in your neighbourhood, be a student on a budget, be close to the city’s canal (1200).
-
-Rent price range: low
-
-The suburbs of the wealthy
-
-Where: 13th (Hietzing, 1130), 19th (D&ouml;bling, 1190), 18th (W&auml;hring, 1180)
-
-Live here if you want… escape the hustle and bustle after work, live in the suburbs, live in a villa, be surrounded by green areas and vineyards, park your Mercedes out front, have a garden, live the good life
-
-Rent price: high
-
-The one-of-a-kind districts
 
 How to find a Wohnung
 
