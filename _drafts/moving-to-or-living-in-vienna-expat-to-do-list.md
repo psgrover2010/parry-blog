@@ -13,7 +13,7 @@ subclass: post tag-getting-started
 author: parry
 ---
 
-I wish someone would have told me this list before I moved here then I could have planned in my childhood. I must say moving to a new country can certainly a big change in my life, no matter how much you are traveling before, and have knowledge and experience. Living in a country & daily experience can give you intercultural learning.
+I wish someone would have told me this list before I moved here then I could have planned in my childhood. I must say moving to a new country can certainly a big change in my life, no matter how much I was traveling before, and have knowledge and experience. Living in a country & daily experience always give intercultural learning.
 
 Undoubtedly, Vienna is a beautiful place to live in ( and one of the major tourist destination in Europe) and i don’t regret all all on my decision. I decided to write this post which will be bit different than the rest of the stories.
 
@@ -23,7 +23,7 @@ Undoubtedly, Vienna is a beautiful place to live in ( and one of the major touri
 
 European Union / European Free Trade Association residents can enter in Austria without requiring a visa and can remain in the country visa-free, apart from those arriving from Croatia which still faces restrictions on long stays. However, anyone from the EU/EFTA staying for longer than four months will need to register locally in Magistrate office.
 
-Those from outside the EU/EFTA moving to Austria will need to apply for a respective residence permit to stay in the country. For more information regarding Immigration rule & registration &nbsp;requirement i recommend to ask best law firm in Vienna, http://www.oberhammer.co.at/en.
+Those from outside the EU/EFTA moving to Austria will need to apply for a respective work permit or residence permit to stay in the country. For more information regarding Immigration rule & registration &nbsp;requirement I recommend to ask best law firm in Vienna, http://www.oberhammer.co.at/en.
 
 #### 2. Where to live and how to find best accommodation
 
@@ -43,17 +43,33 @@ Vienna has 23 districts in total and each Bezirk (districts) of the city has the
 
 1200 = 20th district
 
-District: 1st (Innere Stadt-1010) & 2nd (Leopoldstadt-1020)
+District: 1st (1010) & 2nd (1020)
 
-Living here… will cost you high to low. District one is the main city centre, with numerous historical sites and very few residents. It can be in a penthouse or historic building. Second district is the island between the Danube and the Danube Canal, with amusement park Praterstern and this place is the Vienna's most frequented traffic spot, with Giant Wheel. Living here will escapes high rent prices.
+Living here… will cost you high to low. District one is the main city centre, with numerous historical sites and very few residents. It can be in a penthouse or historic building. Second district is the island between the Danube and the Danube Canal, with amusement park Praterstern, with Giant Wheel and this place is the Vienna's most frequented traffic spot. Living here will escapes high rent prices.
 
-Rent price range: Low to medium (1020) & High (1010)
+District: 3rd (1030) & 4th (1040)
+
+Living here… These district are close to the city’s green area and amazing running paths, good atmospheres from the neighbourhood. These district costs relatively well-priced, however both districts cost are increasingly.
+
+District: 5th (1050), 6th (1060), 7th (1070) & 8th (1080)
+
+Living here… will cost you medium to high. District 5th has lowest rent in the city & living here can be neighbourhood to multicultural. In others district, you will have many options for Sunday brunch & dining out at your doorstep. Except 5th other district are close to main shopping lane & University.
+
+District: 9th (1090), 10th (1100), 12th (1120), 13th (1130) & 14th (1140)
+
+Living here… will cost you medium to high. District 5th has lowest rent in the city & living here can be neighbourhood to multicultural. In others district, you will have many options for Sunday brunch & dining out at your doorstep. Except 5th other district are close to main shopping lane & University.
+
+District: 15th (1150), 16th (1160), 17th (1170), 18th (1180) & (1190)
+
+Living here....will cost you low to very high. In 15th & 16th you may pay low rent with multicultural neighbourhood wherein others districts has lavish life wherein you can rent a villa & be surrounded by green areas and vineyards, have a garden & live the good life.
+
+District: 20th (1200), 21st ( 1210), 22nd (1220) & 23rd (1230)
+
+Living here.....will cost you medium to high. you will be close to Danube river & these districts are largest district in size. It includes UN City, the largest convention hall in Vienna & industry area.
+
+#### 3. Health insurance and social security benefits
 
 &nbsp;
-
-&nbsp;
-
-Health insurance and social security benefits
 
 Both health insurance and social security payments are mandatory for all Dutch residents. Most long-term Dutch residents will be eligible for public health insurance. Private health insurance is also available for those who can't access public health insurance or want to be covered for extra treatments. Most foreign residents who move to the Netherlands are required to obtain public health insurance within four months of receiving their residence permit. Residents from EU/EFTA countries on short stay visits can use their European Health Insurance Card (EHIC) but will need to switch to Dutch health insurance if staying for longer than a year.
 
@@ -70,28 +86,6 @@ Opening a bank account when you move to the Netherlands is fairly straightforwar
 Most Dutch banks offer online banking. Credit cards and international money transfers are also commonly available although they are quite expensive.
 
 Find out how to open a Dutch bank account.
-
-Where to live and find accommodation
-
-Vienna has 23 districts in total and each Bezirk (districts) of the city has their own life style. Choosing your district can often define your lifestyle in the city. You can easily recognize with zip code on the district
-
-1010 = 1st district
-
-1020 = 2nd district
-
-.
-
-.
-
-.
-
-1200 = 20th district
-
-District:1st (Innere Stadt-1010) & 2nd (Leopoldstadt-1020)
-
-Living here… will cost you high to low here to have the best of both worlds (the green parks and the bars, cafes and markets in 1020), live in a historic building (1010), live in a penthouse (1010), live in the center of it all (1010), have tourists taking photos of your building (1010), weave in and out of charming narrow streets on your way home (1010), live near the city’s largest park (1020), live in a cool district that still escapes high rent prices (1020)
-
-Rent price range: low to medium (depending on the area of 1020), high (1010)
 
 District: 6th (1060), 7th (1070) & 8th (1080)
 
