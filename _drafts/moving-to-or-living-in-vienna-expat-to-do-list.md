@@ -19,7 +19,7 @@ Undoubtedly, Vienna is a beautiful place to live in ( and one of the major touri
 
 **Disclaimer:** If in this post there is something that counterbalance you – please have peace. We live under same sky, can breath same air and can have different opinions.
 
-#### 1. First thing first - Immigration and registration
+#### 1. First thing first - Immigration and Registration
 
 European Union / European Free Trade Association residents can enter in Austria without requiring a visa and can remain in the country visa-free, apart from those arriving from Croatia which still faces restrictions on long stays. However, anyone from the EU/EFTA staying for longer than four months will need to register locally in Magistrate office.
 
@@ -29,7 +29,7 @@ Those from outside the EU/EFTA moving to Austria will need to apply for a respec
 
 #### &nbsp;
 
-Vienna has 23 districts in total and each Bezirk (districts) of the city has their own life-style. Choosing your district can often define your lifestyle in the city. It is easy to &nbsp;recognize the district by its zip code. It always start with a 1 for Vienna, followed by the two digits for the district and finally a number for a mailing sub-division (usually zero).
+Vienna has 23 districts in total and each Bezirk (districts) of the city has their own life-style. Choosing your district can often define your lifestyle in the city. It is easy to recognize the district by its zip code. It always start with a 1 for Vienna, followed by the two digits for the district and finally a number for a mailing sub-division (usually zero).
 
 1010 = 1st district
 
@@ -49,29 +49,33 @@ Living here… will cost you high to low. District one is the main city centre, 
 
 District: 3rd (1030) & 4th (1040)
 
-Living here… These district are close to the city’s green area and amazing running paths, good atmospheres from the neighbourhood. These district costs relatively well-priced, however both districts cost are increasingly.
+Living here… These district are close to the city’s green area and amazing running paths, good atmospheres from the neighbourhood. These district costs relatively well-priced, however both districts cost are increasing.
 
 District: 5th (1050), 6th (1060), 7th (1070) & 8th (1080)
 
-Living here… will cost you medium to high. District 5th has lowest rent in the city & living here can be neighbourhood to multicultural. In others district, you will have many options for Sunday brunch & dining out at your doorstep. Except 5th other district are close to main shopping lane & University.
+Living here… will cost you medium to high. District 5th has low rent in the city & living here can be neighbourhood to multicultural. In others district, you will have many options for Sunday brunch & dining out at your doorstep. Other district except 5th are close to main shopping lane & University.
 
 District: 9th (1090), 10th (1100), 11th ( 1110), 12th (1120), 13th (1130) & 14th (1140)
 
-Living here… will cost you medium to high. District 5th has lowest rent in the city & living here can be neighbourhood to multicultural. In others district, you will have many options for Sunday brunch & dining out at your doorstep. shopping lane & University are also closure.
+&nbsp;
+
+&nbsp;
+
+&nbsp;
 
 District: 15th (1150), 16th (1160), 17th (1170), 18th (1180) & 19th (1190)
 
-Living here....will cost you low to very high. In 15th & 16th you may pay low rent with multicultural neighbourhood wherein others districts has lavish life wherein you can rent a villa & be surrounded by green areas and vineyards, have a garden & live the good life.
+Living here….will cost you low to very high. In 15th & 16th you may pay low rent with multicultural neighbourhood wherein others districts has lavish life wherein you can rent a villa & be surrounded by green areas and vineyards, have a garden & live the good life.
 
 District: 20th (1200), 21st ( 1210), 22nd (1220) & 23rd (1230)
 
-Living here.....will cost you medium to high. you will be close to Danube river & these districts are largest district in size. It includes UN City, the largest convention hall in Vienna & industry area.
+Living here…..will cost you medium to high. you will be close to Danube river & these districts are largest district in size. It includes UN City, the largest convention hall in Vienna & industry area.
 
 #### 3. Health insurance and social security benefits
 
 &nbsp;
 
-Both health insurance and social security payments are mandatory for all Austria residents. All long-term residents will be eligible for public health insurance. Private health insurance is also available for those who can't access public health insurance or want to be covered for extra treatments. Most foreign residents who move to the Austria are required to obtain public health insurance. Residents from EU/EFTA countries on short stay visits can use their European Health Insurance Card (EHIC) but will need to switch to Austria health insurance if staying for longer.
+Both health insurance and social security payments are mandatory for all Austria residents. All long-term residents will be eligible #######for public health insurance. Private health insurance is also available for those who can't access public health insurance or want to be covered for extra treatments. Most foreign residents who move to the Austria are required to obtain public health insurance. Residents from EU/EFTA countries on short stay visits can use their European Health Insurance Card (EHIC) but will need to switch to Austria health insurance if staying for longer.
 
 #### 4. Opening a bank account in the Austria
 
