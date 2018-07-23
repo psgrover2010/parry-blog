@@ -25,6 +25,12 @@ European Union / European Free Trade Association residents can enter in Austria 
 
 Those from outside the EU/EFTA moving to Austria will need to apply for a respective work permit or residence permit to stay in the country. For more information regarding Immigration rule & registration &nbsp;requirement I recommend to ask best law firm in Vienna, http://www.oberhammer.co.at/en.
 
+**Secondly get the holy Meldezettel**
+
+The townhall registration document known as the Meldezettel is your proof of existence in the city. Please remember this must be completed within 3 days as of arrivial and vise versa when you leave Austria permanently. This is also applicable if you change your address from one place to other.&nbsp;
+
+Without it, you don’t exist in Austria as you need it to apply for everything, from a library card, Bank account to getting your social security number. It’s simple to get, and you’ll find more info https://www.wien.gv.at
+
 #### 2. Where to live and how to find best accommodation
 
 #### &nbsp;
@@ -73,19 +79,19 @@ Living here…..will cost you medium to high. you will be close to Danube river 
 
 #### 3. Health insurance and social security benefits
 
-&nbsp;
-
-Both health insurance and social security payments are mandatory for all Austria residents. All long-term residents will be eligible #######for public health insurance. Private health insurance is also available for those who can't access public health insurance or want to be covered for extra treatments. Most foreign residents who move to the Austria are required to obtain public health insurance. Residents from EU/EFTA countries on short stay visits can use their European Health Insurance Card (EHIC) but will need to switch to Austria health insurance if staying for longer.
+Both health insurance and social security payments are mandatory for all Austria residents. All long-term residents will be eligible for public health insurance. Private health insurance is also available for those who can't access public health insurance or want to be covered for extra treatments. Most foreign residents who move to the Austria are required to obtain public health insurance. Residents from EU/EFTA countries on short stay visits can use their European Health Insurance Card (EHIC) but will need to switch to Austria health insurance or International Insurance if staying for longer.
 
 #### 4. Opening a bank account in the Austria
 
-&nbsp;
+Opening a bank account when you move to the Austria is fairly straightforward. Most banks will have English-speaking staff and there are also financial providers who cater specifically for expat clients. To open an Austria bank account, you will usually need to have valid ID and proof of address (Meldezettel).
 
-Opening a bank account when you move to the Austria is fairly straightforward. Most banks will have English-speaking staff and there are also financial providers who cater specifically for expat clients. To open a Austria bank account, you will usually need to have valid ID and proof of address. You may also be asked for proof of income, such as a payslip.
+Most Austrian banks offer online banking. Credit cards and international money transfers are also commonly available although they are quite expensive. Use TransferWise- https://transferwise.com or Western Union- https://www.westernunion.com or any other in similar way.
 
-Most Dutch banks offer online banking. Credit cards and international money transfers are also commonly available although they are quite expensive.
+Attention: US citizen might face difficulty to open a bank account in most of the Austrian bank however Erste Bank allow with some conditions. Would recommend to get in touch with the bank directly and checkout.&nbsp;
 
-How to find a Wohnung
+#### 5. How to find a Wohnung
+
+#### &nbsp;
 
 Be prepared to dedicate some serious time to this task. With over 50% of the city dedicated to state-housing, the private rent market is small and competitive. Finding a Wohnung (apartment) in Vienna in the area you want requires patience and charm (directed at the real estate agent). Oh, and you’ll also need a bit of cash behind you, because in Vienna, the renter pays the real estate agent’s commission (typically 2 months rent). Unless you’re lucky enough to score one of the prized provisionsfrei apartments still being rented out by private owners. Shared apartment (WG / Wohngemeinschaft) living is common and a great alternative for students and young professionals wanting to get to know people in the city.
 
@@ -114,10 +120,6 @@ The top websites to look for an apartment
 * Toprop
 
 * Der Standard
-
-1. First things first, get the holy Meldezettel
-
-The holy document known as the Meldezettel is your proof of existence in this city. Without it, you don’t exist in the eyes of the state. You need it to apply for everything, from a library card to getting your social security number, and ordering takeaway from your local Indian eatery (ok, maybe we made that last one up). It’s simple to get, and you’ll find more info. about how, here.
 
 Vienna’s marketplace and classifieds for everything
 
