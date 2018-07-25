@@ -13,7 +13,7 @@ subclass: post tag-getting-started
 author: parry
 ---
 
-I wish someone would have told me this list before I moved here then I could have planned in my childhood. I must say moving to a new country can certainly a big change in my life, no matter how much I was traveling before, and have knowledge and experience. Living in a country & daily experience always give intercultural learning.
+I wish someone would have told me this list before I moved here though i was aware of many however not completely. I must say moving to a new country can certainly a big change in my life, no matter how much I was traveling before, and have knowledge and experience. Living in a country & daily experience always give intercultural learning.
 
 Undoubtedly, Vienna is a beautiful place to live in ( and one of the major tourist destination in Europe) and i don’t regret at all on my decision. I decided to write this post which will be bit different than the rest of the stories.
 
@@ -29,13 +29,13 @@ Those from outside the EU/EFTA moving to Austria will need to apply for a respec
 
 The townhall registration document known as the Meldezettel is your proof of existence in the city. Please remember this must be completed within 3 days as of arrivial and vise versa when you leave Austria permanently. This is also applicable if you change your address from one place to other.&nbsp;
 
-Without it, you don’t exist in Austria as you need it to apply for everything, from a library card, Bank account to getting your social security number. It’s simple to get, and you’ll find more info https://www.wien.gv.at
+Without it, you don’t exist in Austria as you need it to apply for everything, from a library card, Bank account to getting your social security number. It’s simple to get, and you’ll find more info here- https://www.wien.gv.at
 
 #### 2. Where to live and how to find best accommodation
 
 #### &nbsp;
 
-Vienna has 23 districts in total and each Bezirk (districts) of the city has their own life-style. Choosing your district can often define your lifestyle in the city. It is easy to recognize the district by its zip code. It always start with a 1 for Vienna, followed by the two digits for the district and finally a number for a mailing sub-division (usually zero).
+Vienna has 23 districts in total and each Bezirk (districts) of the city has their own life-style. Choosing your district can often define your lifestyle in the city. It is easy to recognize the district by its zip code. It always start with 1 for Vienna, followed by the two digits for the district and finally a number for a mailing sub-division (usually zero).
 
 1010 = 1st district
 
