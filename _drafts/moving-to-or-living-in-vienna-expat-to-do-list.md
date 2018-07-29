@@ -13,198 +13,242 @@ subclass: post tag-getting-started
 author: parry
 ---
 
-I wish someone would have told me this list before I moved here though i was aware of many however not completely. I must say moving to a new country can certainly a big change in my life, no matter how much I was traveling before, and have knowledge and experience. Living in a country & daily experience always give intercultural learning.
+I wish someone would have told me this list, before I moved here though I was aware of many however not completely. I must say moving to a new country can certainly a big change in my life, no matter how much I was traveling before, and have knowledge and experience. Living in a country & daily experience always give intercultural learning.
+{: .present-before-paste}
 
-Undoubtedly, Vienna is a beautiful place to live in ( and one of the major tourist destination in Europe) and i don’t regret at all on my decision. I decided to write this post which will be bit different than the rest of the stories.
+Undoubtedly, Vienna is a beautiful place to live in (and one of the major tourist destination in Europe) and I don’t regret at all on my decision. I decided to write this post which will be bit different than the rest of the stories.
+{: .present-before-paste}
 
-**Disclaimer:** If in this post there is something that counterbalance you – please have peace. We live under same sky, can breath same air and can have different opinions.
+Disclaimer: If in this post there is something that counterbalance you – please have peace. We live under same sky, can breathe same air and can have different opinions.
+{: .present-before-paste}
 
 #### 1. First thing first - Immigration and Registration
 
 European Union / European Free Trade Association residents can enter in Austria without requiring a visa and can remain in the country visa-free, apart from those arriving from Croatia which still faces restrictions on long stays. However, anyone from the EU/EFTA staying for longer than four months will need to register locally in Magistrate office.
+{: .present-before-paste}
 
-Those from outside the EU/EFTA moving to Austria will need to apply for a respective work permit or residence permit to stay in the country. For more information regarding Immigration rule & registration &nbsp;requirement I recommend to ask best law firm in Vienna, http://www.oberhammer.co.at/en.
+Those from outside the EU/EFTA moving to Austria will need to apply for a respective work permit or residence permit to stay in the country. For more information regarding Immigration rule & registration requirement I recommend to ask best law firm in Vienna, http://www.oberhammer.co.at/en .
+{: .present-before-paste}
 
 **Secondly, to get the holy Meldezettel**
+{: .present-before-paste}
 
-The townhall registration document known as the Meldezettel is your proof of existence in the city. Please remember this must be completed within 3 days as of arrivial and vise versa when you leave Austria permanently. This is also applicable if you change your address from one place to other.&nbsp;
+The townhall registration document known as the ‘’Meldezettel’’ is your proof of existence in the city. Please remember this must be completed within 3 days as of arrival and vice-versa when you leave Austria permanently. This is also applicable if you change your address from one place to other.
+{: .present-before-paste}
 
-Without it, you don’t exist in Austria as you need it to apply for everything, from a library card, Bank account to getting your social security number. It’s simple to get, and you’ll find more info here- https://www.wien.gv.at
+Without it, you don’t exist in Austria as you need it to apply for everything, from a library card, Bank account to getting your social security number. It’s simple to get, and you’ll find more info here- https://www.wien.gv.at .
+{: .present-before-paste}
 
 #### 2. Where to live and how to find best accommodation
 
-#### &nbsp;
-
-Vienna has 23 districts in total and each Bezirk (districts) of the city has their own life-style. Choosing your district can often define your lifestyle in the city. It is easy to recognize the district by its zip code. It always start with 1 for Vienna, followed by the two digits for the district and finally a number for a mailing sub-division (usually zero).
+Vienna has 23 districts in total and each Bezirk (districts) of the city has their own life-style. Choosing your district can often define your lifestyle in the city. It is easy to recognize the district by its zip code. It always starts with 1 for Vienna, followed by the two digits for the district and finally a number for a mailing sub-division (usually zero).
+{: .present-before-paste}
 
 1010 = 1st district
+{: .present-before-paste}
 
 1020 = 2nd district
+{: .present-before-paste}
 
 .
+{: .present-before-paste}
 
 .
+{: .present-before-paste}
 
 .
+{: .present-before-paste}
 
 1200 = 20th district
+{: .present-before-paste}
 
 District: 1st (1010) & 2nd (1020)
+{: .present-before-paste}
 
 Living here… will cost you high to low. District one is the main city centre, with numerous historical sites and very few residents. It can be in a penthouse or historic building. Second district is the island between the Danube and the Danube Canal, with amusement park Praterstern, with Giant Wheel and this place is the Vienna's most frequented traffic spot. Living here will escapes high rent prices.
+{: .present-before-paste}
 
 District: 3rd (1030) & 4th (1040)
+{: .present-before-paste}
 
-Living here… These district are close to the city’s green area and amazing running paths, good atmospheres from the neighbourhood. These district costs relatively well-priced, however both districts cost are increasing.
+Living here… These districts are close to the city’s green area and amazing running paths, good atmospheres from the neighborhood. These district costs relatively well-priced, however both districts cost is increasing.
+{: .present-before-paste}
 
 District: 5th (1050), 6th (1060), 7th (1070) & 8th (1080)
+{: .present-before-paste}
 
-Living here… will cost you medium to high. District 5th has low rent in the city & living here can be neighbourhood to multicultural. In others district, you will have many options for Sunday brunch & dining out at your doorstep. Other district except 5th are close to main shopping lane & University.
+Living here… will cost you medium to high. District 5th has low rent in the city & living here can be neighborhood to multicultural. In others district, you will have many options for Sunday brunch & dining out at your doorstep. Other district except 5th are close to main shopping lane & University.
+{: .present-before-paste}
 
-District: 9th (1090), 10th (1100), 11th ( 1110), 12th (1120), 13th (1130) & 14th (1140)
+District: 9th (1090), 10th (1100), 11th (1110), 12th (1120), 13th (1130) & 14th (1140)
+{: .present-before-paste}
 
-&nbsp;
+Living here…These districts has mix cultural people- In 9th from Student to Medics, In 10th many Foreign national and one of the cheapest rent property & this district is also called bad in Austrian term-for a good reason, 11th Simmering district called hub of Beer as a brewery was founded in Simmering, 12th Meidling is a diverse district, largely a laborer’s district, but with some up-market real estate here and there. Last two district are most touristic with many sightseeing attractions including Sch&ouml;nbrunn Palace and Park.
+{: .present-before-paste}
 
-&nbsp;
+Please read my other article on Sch&ouml;nbrunn Palace-
+{: .present-before-paste}
 
-&nbsp;
+https://thevisits.in/sch%C3%B6nbrunn-palace-in-vienna-austria-indeed-you-are-pretty-as-your-pictures
+{: .present-before-paste}
 
 District: 15th (1150), 16th (1160), 17th (1170), 18th (1180) & 19th (1190)
+{: .present-before-paste}
 
-Living here….will cost you low to very high. In 15th & 16th you may pay low rent with multicultural neighbourhood wherein others districts has lavish life wherein you can rent a villa & be surrounded by green areas and vineyards, have a garden & live the good life.
+Living here…. will cost you low to very high. In 15th & 16th you may pay low rent with multicultural neighborhood wherein others districts has lavish life wherein you can rent a villa & be surrounded by green areas and vineyards, have a garden & live the good life.
+{: .present-before-paste}
 
-District: 20th (1200), 21st ( 1210), 22nd (1220) & 23rd (1230)
+District: 20th (1200), 21st (1210), 22nd (1220) & 23rd (1230)
+{: .present-before-paste}
 
-Living here…..will cost you medium to high. you will be close to Danube river & these districts are largest district in size. It includes UN City, the largest convention hall in Vienna & industry area.
+Living here…. will cost you medium to high. you will be close to Danube river & these districts are largest district in size. It includes UN City, the largest convention hall in Vienna & Industry area.
+{: .present-before-paste}
 
-**How to find a Wohnung**
+#### 3. How to find an apartment (Wohnung)
 
-This is a serious task so be prepared to dedicate some time to this task. Finding a Wohnung (apartment) in Vienna in the area you want requires patience and charm. Oh, and you’ll also need a bit of cash, as in Vienna , agent’s commission is typically 2 months rent. If you’re lucky enough to find one of with provisionsfrei (No Agent Fee) apartments which is still being rented out by private owners. Shared apartment (WG / Wohngemeinschaft) living is common and a great alternative for students and young professionals who want to get to know people in the city.
+This is a serious task so be prepared to give enough time to this task. Finding a Wohnung (apartment) in Vienna in the area you require patience and charm. Of course, you would need a bit of cash as agent fee in Vienna is typically 2 months’ rent however if you are lucky to find one of with provisions Frei (No Agent Fee) apartments then it will be your first achievement in Vienna market.
+{: .present-before-paste}
 
-Most vocabulary for apartment hunting in Vienna
+Most common vocabulary for apartment hunting in Vienna:
+{: .present-before-paste}
 
-Provision = real estate agent’s commission
+-Mietvertrag or Mietvertragerstellung = Rental contract, normally you pay an admin fee around Eur 200
+{: .present-before-paste}
 
-Kaution = Security deposit
+-Befristeter’ or ‘unbefristeter’ Mietvertrag = a Befristeter Mietvertrag is a limited or short-term rental contract. A standard one of these is for 3 years. Unbefristeter Mietvertrag means you can stay in the apartment for as long as you want. Rent will often be cheaper when the contract is Befristeter.
+{: .present-before-paste}
 
-Altbau = a classy old building built before the war
+-Kaution = Deposit normally 2-3 months gross rent which you get back.
+{: .present-before-paste}
 
-Neubau = modern apartment complexes
+-Running costs (rubbish, cleaning, elevator, water etc), can inclusive heating and warm water (Heizung, Warmwasser). They can be calculated per m2 or per flat and on average/month (akonto). Gets balanced 1xyear (norm. April/May), this is when you either pay on top or get money back
+{: .present-before-paste}
 
-Kalt = without gas and water costs in the rent price
+-Provision = real estate agent’s commission
+{: .present-before-paste}
 
-Warm = with everything except electricity included in the rent price
+Altbau = an old building built before the war
+{: .present-before-paste}
 
-Miete = rent
-
-‘Befristeter’ or ‘unbefristeter’ Mietvertrag = a Befristeter Mietvertrag is a limited or short term rental contract. A standard one of these is limited typically to 3 years. Unbefristeter Mietvertrag means you can stay in the apartment for as long as you like. Rent will often be cheaper when the contract is befristet.
+Neubau = modern apartment
+{: .present-before-paste}
 
 The top websites to look for an apartment
+{: .present-before-paste}
 
-* Willhaben
+&nbsp; &nbsp; &nbsp; https://www.willhaben.at/iad/immobilien/mietwohnungen/
+{: .present-before-paste}
 
-* Toprop
+&nbsp; &nbsp; &nbsp; https://derstandard.at/immobiliensuche
+{: .present-before-paste}
 
-* Der Standard
+&nbsp; &nbsp; &nbsp;&nbsp; https://www.wohnnet.at/
+{: .present-before-paste}
 
-#### 3. Health insurance and social security benefits
+&nbsp; &nbsp; &nbsp;&nbsp; https://mietguru.at/
+{: .present-before-paste}
 
-Both health insurance and social security payments are mandatory for all Austria residents. All long-term residents will be eligible for public health insurance. Private health insurance is also available for those who can't access public health insurance or want to be covered for extra treatments. Most foreign residents who move to the Austria are required to obtain public health insurance. Residents from EU/EFTA countries on short stay visits can use their European Health Insurance Card (EHIC) but will need to switch to Austria health insurance or International Insurance if staying for longer.
+&nbsp; &nbsp; &nbsp;&nbsp; https://www.privatimmobilien.at/
+{: .present-before-paste}
 
-#### 4. Opening a bank account in the Austria
+&nbsp; &nbsp; &nbsp;&nbsp; http://www.immosuchmaschine.at/
+{: .present-before-paste}
 
-Opening a bank account when you move to the Austria is fairly straightforward. Most banks will have English-speaking staff and there are also financial providers who cater specifically for expat clients. To open an Austria bank account, you will usually need to have valid ID and proof of address (Meldezettel).
+&nbsp; &nbsp; &nbsp;&nbsp; https://www.immobilienscout24.at/
+{: .present-before-paste}
 
-Most Austrian banks offer online banking. Credit cards and international money transfers are also commonly available although they are quite expensive. Use TransferWise- https://transferwise.com or Western Union- https://www.westernunion.com or any other in similar way.
+&nbsp; &nbsp; &nbsp;&nbsp; http://www.miet-wohnungen.at/
+{: .present-before-paste}
 
-Attention: US citizen might face difficulty to open a bank account in most of the Austrian bank however Erste Bank allow with some conditions. Would recommend to get in touch with the bank directly and checkout.&nbsp;
+&nbsp; &nbsp; &nbsp;&nbsp; http://www.bazar.at/wien-wohnungen-anzeigen,dir,1,cId,14,fc,9,loc,9,tp,0,at,0
+{: .present-before-paste}
 
-#### 5. Vienna’s marketplace and classifieds for everything
+&nbsp; &nbsp; &nbsp;&nbsp; http://www.findmyhome.at/
+{: .present-before-paste}
 
-London has Loot, America has Craigslist and Vienna’s go-to classifieds website for everything is Willhaben.at. Here, second-hand furniture and other stuff is bought and sold, and apartments, housemates and jobs are found. Another useful online fleamarket is Shpock.
+Other sources of info
+{: .present-before-paste}
 
-Getting connected: meeting people in Vienna
+Facebook: Vienna Wűrstelstand
+{: .present-before-paste}
 
-Moving to a new city can be like the first day of school all over again (perhaps, minus the peeing of pants and that embarrassing breakdancing incident that led to the school being evacuated – you know what we mean, right?). The best way to deal with the ‘settling in’ stage in Vienna is to throw yourself – kicking, screaming, biting lip, peeing pants – into the mass of other people also experiencing the initial adjustment stage. Vienna is full of internationals, and locals alike, wanting to connect. You’ll find many of them at the bar of the many Irish pubs around the city (we’ve made a useful list for you here of the city’s best Irish bars)
+Facebook: Relocation Strohmayer
+{: .present-before-paste}
 
-Otherwise, here’s a list of communities where you can find them
+Facebook: Immobilien
+{: .present-before-paste}
 
-* Internations Vienna (a professional expat networking group hosting regular events)
+Facebook: Stadtbekannt Wien (in German though)
+{: .present-before-paste}
 
-* Vienna Expats (a mixed group of expats meeting on a regular basis in a casual setting)
+#### 4. Health insurance and social security benefits
 
-* Women of Vienna
+Both, Health insurance and social security payments are mandatory for all Austria residents. All long-term residents will be eligible for public health insurance & private health insurance is also available which will benefit you extra treatments. Most foreign residents who move to the Austria are required to obtain public health insurance. Residents from EU/EFTA countries on short stay visits can use their European Health Insurance Card (EHIC) but will need to switch to Austria health insurance or International Insurance if staying for longer.
+{: .present-before-paste}
 
-* Vienna & Diplomatic (an online club that offers luxury items at exclusive prices for expats and Diplomats and hosts regular events)
+#### 5. Opening a bank account in the Austria
 
-* Vienna Business Agency Expat club (A good club for expats in business)
+Opening a bank account in Austria is fairly straightforward like other country. Most banks will have English-speaking staff and there are also financial providers who cater specifically for expat clients. To open an Austria bank account, you will usually need to have valid ID and proof of address (Meldezettel).
+{: .present-before-paste}
 
-* AWA (A international group of Expat women helping and connecting women in Vienna.
+Most Austrian banks offer online banking. Credit cards and international money transfers are also commonly available although they are quite expensive. I would recommend to use TransferWise- https://transferwise.com &nbsp;or Western Union- https://www.westernunion.com &nbsp;or any other in similar way.
+{: .present-before-paste}
 
-* Vienna Babies Club (a expat network of international families)
+Attention: US citizen might face difficulty to open a bank account in most of the Austrian bank however Erste Bank allow with some conditions. Would recommend to get in touch with the bank directly and checkout.
+{: .present-before-paste}
 
-Expat Facebook groups
+#### 6. Vienna’s marketplace for top to bottom things
 
-* English speakers in Vienna
+City go-to classified website for everything at https://www.willhaben.at/iad .
+{: .present-before-paste}
 
-* British in Vienna
+&nbsp;
+{: .present-before-paste}
 
-* Americans in Vienna
+&nbsp;
+{: .present-before-paste}
 
-1. Language is hard. I mean: real hard.
+&nbsp;
+{: .present-before-paste}
 
-No, seriously. Sources disagree, but I read that it’s one of the hardest in Europe, and possibly in the world. It’s estimated that a person needs about 4 years of study to reach fluency (and I am not studying).
+&nbsp;
+{: .present-before-paste}
 
-First of all, there are some factors that don’t encourage you to learn it at all. You can live in a social bubble that doesn’t speak Czech, for example. Or, you can just panic and stop going out altogether. I would know, I tried it.
+#### 7. Getting connected: meeting people in Vienna
+{: .present-before-paste}
 
-But if you try to learn the beautiful language, at the beginning you feel like everything is against you. Accents and digraphs make for a stunning 42 characters in the alphabet (nice, uh?). Some sounds are also very specific to learn, with the terrible Ř that will give me troubles until the end of my life. It sounds like a drrj, by the way.
+Moving to a new city can be like the first step towards your new life wherein you meet new people and experience something different. The best way to deal with ‘settling down’ in Vienna is to throw yourself. Vienna is full of internationals, and locals who welcome and want to connect.
+{: .present-before-paste}
 
-And then, grammar starts.
+A list of communities for good connections
+{: .present-before-paste}
 
-Take a verdammten German course: learning the language
+Internations Vienna (a professional expat networking group hosting events)
+{: .present-before-paste}
 
-While most speak fluent English in this city, they say (who ever they are) that you live a new life for every new language you speak. Well, we suggest you get started with your new Vienna life with ze’ language of its soul – German. Ok, well, the Viennese’s wild and wonderful version of German – Wienerisch. However, Viennese you’ll learn on the street, but first you need to sign yourself up for a German course. Don’t lock yourself away in an expat bubble. Doors open in this city when you learn to sweet talk in ze’ German. Denglish (German with English words scattered throughout) is also accepted as a charming alternative, as well. Here’s a few places to learn your German that we recommend:
+Vienna Expats (a mixed group of expats meeting on a regular basis)
+{: .present-before-paste}
 
-* Deutschakademie (cheap intensive courses)
+Women of Vienna
+{: .present-before-paste}
 
-* Universit&auml;t Wien Deutschkurs (this one comes highly recommended, intensive semester courses at the University for very low prices)
+AWA (A international group of Expat women helping and connecting women in Vienna.
+{: .present-before-paste}
 
-* i-diom: Professionelles Sprachtraining (for a professional German course)
+Vienna Babies Club (an expat network of international families)
+{: .present-before-paste}
 
-1. Live like a local: dive into Austrian culture
+English speakers in Vienna on Facebook
+{: .present-before-paste}
 
-Don’t be one of those expats that bring their habits and cultural etiquette from home, cling to it for dear life and spend their whole time comparing home with here – news flash: you’re living in a different country! While after the honeymoon period of first moving to Vienna wears off, many expats are tempted to indulge in a bit of ‘verbal-Austrian-bashing’ for the rude service, their anal ways, their rigid mentality, their sleepy lock-down Sundays, amongst other things. We recommend refraining from such verbal farts. This will only take your eye off the place you’re living in – an eccentric, individual kind of city that has a bundle of charming characteristics. Spend your time getting to know Vienna’s wine and wandering culture on the fringe of the city, the ‘Schaumamalmal’ work-life balance, the pleasure of coffeehouse procrastination, the culture and classical music on tap, and the many grassroot creative stuff happening in the city. Vienna will not serve itself to you on a platter. It plays hard-to-get, hide and seek with you, and dares you to explore and live it independently.
+Indian in Vienna on Facebook
+{: .present-before-paste}
 
-Where to shop for stuff from home
+Americans in Vienna on facebook
+{: .present-before-paste}
 
-1. Make your smartphone Vienna-ready
+&nbsp;
+{: .present-before-paste}
 
-The following are some helpful apps for when you’re living in Vienna.
-
-Qando: getting around the transport system
-
-iPhone, android
-
-CityBike station finder: to locate the city’s free bike stations
-
-iPhone, android
-
-Mytaxi: the easy way to summon a taxi
-
-iPhone, android
-
-Uber: the cheap taxi alternative (use the W&uuml;rstelstand promocode when you sign up to get your first ride free)
-
-iPhone, android
-
-ParkU – an app for parking
-
-iPhone, android
-
-For more, check out our list of other useful apps for living in Vienna, here.
-
-Learn how to cope with quiet Sundays and prep’ for them accordingly
-
-Vienna shuts down on Sundays and if you’re outside of the touristy city center, don’t be surprised if you spot some tumbleweed making its way across the street (warning: levels of exaggeration may be present). That’s right, even the stores are closed. While this may annoy many, we see this 7th day of solace is an opportunity. We hereby declare Sunday to be the day of exploration in Vienna, when man, woman, child and the strange guy who stares at us on the bus every morning, unite in a common pursuit to venture out into parts of the city they never normally would if the shops were open. The city is surrounded by forests and vineyards, while the inner city hosts a bundle of galleries to wander around in for hours, and hectares of green space to get active in, or to just take a walk. One of our favourite Sunday activities is simply strolling through a district we’ve never seen before.
-
-<br>&nbsp;
+&nbsp;
+{: .present-before-paste}
