@@ -244,7 +244,16 @@ English speakers in Vienna on Facebook
 Indian in Vienna on Facebook
 {: .present-before-paste}
 
-Americans in Vienna on facebook
+Americans in Vienna on Facebook
+{: .present-before-paste}
+
+#### 8. Awareness on quiet Sundays
+
+Closed! Closed! Closed!
+
+On Sunday's, Vienna shuts down, shops & supermarket are closed while this may annoy many however I see this an opportunity to relax in life and explore &nbsp;&nbsp;
+
+&nbsp;
 {: .present-before-paste}
 
 &nbsp;
