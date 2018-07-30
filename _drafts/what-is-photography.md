@@ -8,3 +8,5 @@ It's always been about seeing something, knowing how you want it to look, and se
 What does your photography mean to you?
 
 &nbsp;
+
+&nbsp;
