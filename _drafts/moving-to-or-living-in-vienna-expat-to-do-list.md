@@ -29,7 +29,7 @@ Those from outside the EU/EFTA moving to Austria will need to apply for a respec
 
 The townhall registration document known as the ‘’Meldezettel’’ is your proof of existence in the city. Please remember this must be completed within 3 days as of arrival and vice-versa when you leave Austria permanently. This is also applicable if you change your address from one place to other.
 
-Without it, you don’t exist in Austria as you need it to apply for everything, from a library card, Bank account to getting your social security number. It’s simple to get, and you’ll find more info here- https://www.wien.gv.at .
+Without it, you don’t exist in Austria as you need it to apply for everything, from a library card, Mobile phone contract, Bank account to getting your social security number. It’s simple to get, and you’ll find more info here- https://www.wien.gv.at .
 
 **Meldezettel PHOTO**
 
@@ -202,15 +202,17 @@ The following shops are usually open on Sunday and public holiday, too:
 
 #### 10. Take a German course: learn the local language
 
-Learning a local language is always a plus point to interact with locals. Most of the people speak fluent English in this city however always prefer to speak in Deutsch (German). Don’t be surprised if someone says that they are not good in English while they can speak very well, I believe this is because everyone prefers local language. Viennese you’ll learn on the street, but first you need to learn yourself up for a German course. Doors open in this city when you learn your own and even if speaks in German with English words scattered. Here’s a few places to learn your German FREE:&nbsp;
+Learning a local language is always a plus point to interact with locals. Most of the people speak fluent English in this city however always prefer to speak in Deutsch (German). Don’t be surprised if someone says that they are not good in English while they can speak very well, I believe this is because everyone prefers local language. Viennese you’ll learn on the street, but first you need to learn yourself up for a German course. Doors open in this city when you learn your own and even if speaks in German with English words scattered. Here’s a few places to learn German FREE:&nbsp;
 
-Deutsch&nbsp;
+- [Open German course](/uploads/German Course.pdf) in Amerlinghaus, Stiftgasse 8, 1070 Vienna.&nbsp;
+
+- [loginsleben ](/uploads/German Course loginsleben.pdf)in Weiglgasse 19/4-6, 1150 Vienna.&nbsp;
 
 #### 11. Choose best network for mobile phones
 
-Mobile phone in Austria are called Handy. There are many providers and it would be difficult to choose the best however at the end we buy as per our needs.&nbsp;&nbsp;
+Mobile phone in Austria are called Handy. There are many providers and it would be difficult to choose the best however in the end we buy as per our needs.
 
-A1: previously known state-owned mobile provider. It’s offered the best coverage and good quality service. I also use the same however – if you have to call their agents, be prepared for a long wait on hold.&nbsp;&nbsp;
+A1: previously known state-owned mobile provider. It’s offered the best coverage and good quality service. I also use the same however – if you have to call their agents, be prepared for a long wait on hold. &nbsp;
 
 3: This is the Hutchinson company called Drei (number 3). This is the second-best network in Vienna and they are pursuing the multimedia approach and rates within the 3 networks are very cheap. Please check the details of your contract!&nbsp;&nbsp;
 
@@ -218,19 +220,19 @@ Tele-ring: The discount provider. Not recommended as they are almost bankrupt bu
 
 T-Mobile: It has good network coverage and cheap prices. Many Austrians use this network.&nbsp;&nbsp;
 
-There are many more as every supermarket also has local calling network sim called, Lyca, Yesss, Hofer sim etc. &nbsp;
+There are many more called, Lyca, Yesss, Hofer sim etc.
 
-To decide the best as per your needs is bit a tricky situation. Not only you have to choose a provider, but also a contract type – and differences are huge. Best approach is to find your needs and then compare with benefits. There are many calling cards available for calling aboard and the best is WhatsApp calling which I like the most. Do not worry about the new phone when you are in Vienna as Handsets (Handy) are very cheap or even for free if you make a contract.&nbsp;&nbsp;
+To decide the best as per your needs is bit a tricky situation. Best approach is to find your needs and then compare with benefits. There are many calling cards available for calling aboard and the best is WhatsApp calling which is as flat as pancake and they have also added group calling which I like the most. Do not worry about the new phone when you are in Vienna as Handsets (Handy) are very cheap or even for free if you make a contract. &nbsp;
 
-A new phone can cost you between 30 to 40 euro per month in contract type while you get your latest Samsung or I phone free. Do check with respective provider in detail.
+A new phone can cost you between 30 to 40 euro per month in contract type while you get your latest Samsung or I phone free. Do check with respective provider for detail.
 
 #### 12. Getting around with public transport
 
-This is the time to forget about the delay and struggle on roads. I really surprise why people use car within city when Vienna has best transportation network. Getting around is approximate 30 minutes anywhere within city.&nbsp;&nbsp;
+This is the time to forget about the delay and struggle on roads. I am really surprised why people use car within city when Vienna has best transportation network. Getting around is approximate 30 minutes anywhere within city.
 
-Vienna has Buses, local trains, trams and underground lines which will take you almost anywhere in the city in no time at all. Vienna public transport has five underground lines (U1, U2, U3, U4 & U6) with U5 missing however it’s under construction and will now very likely be built until 2027. Vienna has 29 tram, 127 Bus lines including night lines and on weekend & public holiday in Vienna underground remains at the service of its passengers all night.&nbsp;&nbsp;
+Vienna has Buses, local trains, trams and underground lines which will take you almost anywhere in the city in no time at all. Vienna public transport has five underground lines (U1, U2, U3, U4 & U6) with U5 missing with mystery however it’s under construction and will now very likely to be built someday in few years. Vienna has 29 tram, 127 Bus lines including night lines and on weekend & public holiday in Vienna underground remains at the service of its passengers all night. &nbsp;
 
-A single ticket costs EUR 2.20 and monthly pass about Euro 50 wherein I would recommend to take yearly pass with which you can avail all public transport in one Euro per day.&nbsp;&nbsp;
+A single ticket costs EUR 2.20 and monthly pass about Euro 50 wherein I would recommend to take yearly pass with which you can avail all public transport in one Euro per day.
 
 &nbsp;Following are the places where you can buy tickets. &nbsp;&nbsp;
 
@@ -241,6 +243,8 @@ A single ticket costs EUR 2.20 and monthly pass about Euro 50 wherein I would re
 -on tram at an increased rate of EUR 2.30 per ticket&nbsp;
 
 -Buy tickets online: Wiener Linien Online Shop&nbsp;
+
+For yearly pass please look for Wiener Linien office-https://www.wienerlinien.at/eportal3/
 
 &nbsp;
 
