@@ -1,10 +1,10 @@
 ---
 layout: post
 current: post
-cover: uploads/DSC_0351-01.jpeg
+cover: uploads/DSC_0010-02.jpeg
 navigation: true
 title: Moving to or Living in Vienna-Expat to-do list
-date: 2018-07-07 00:00:00
+date: 2018-07-31 00:00:00
 tags:
   - Europe
   - Austria
@@ -17,7 +17,7 @@ I wish someone would have told me this list, before I moved here though I was aw
 
 Undoubtedly, Vienna is a beautiful place to live in (and one of the major tourist destination in Europe) and I don’t regret at all on my decision. I decided to write this post which will be bit different than the rest of the stories.
 
-Disclaimer: If in this post there is something that counterbalance you – please have peace. We live under same sky, can breathe same air and can have different opinions.
+**Disclaimer:** If in this post there is something that counterbalance you – please have peace. We live under same sky, can breathe same air and can have different opinions.
 
 #### 1. First thing first - Immigration and Registration
 
@@ -30,6 +30,8 @@ Those from outside the EU/EFTA moving to Austria will need to apply for a respec
 The townhall registration document known as the ‘’Meldezettel’’ is your proof of existence in the city. Please remember this must be completed within 3 days as of arrival and vice-versa when you leave Austria permanently. This is also applicable if you change your address from one place to other.
 
 Without it, you don’t exist in Austria as you need it to apply for everything, from a library card, Bank account to getting your social security number. It’s simple to get, and you’ll find more info here- https://www.wien.gv.at .
+
+**Meldezettel PHOTO**
 
 #### 2. Where to live and how to find best accommodation
 
@@ -63,9 +65,11 @@ District: 9th (1090), 10th (1100), 11th (1110), 12th (1120), 13th (1130) & 14th 
 
 Living here…These districts has mix cultural people- In 9th from Student to Medics, In 10th many Foreign national and one of the cheapest rent property & this district is also called bad in Austrian term-for a good reason, 11th Simmering district called hub of Beer as a brewery was founded in Simmering, 12th Meidling is a diverse district, largely a laborer’s district, but with some up-market real estate here and there. Last two district are most touristic with many sightseeing attractions including Sch&ouml;nbrunn Palace and Park.
 
-Please read my other article on Sch&ouml;nbrunn Palace-
+**Please read my other article on Sch&ouml;nbrunn Palace-**
 
 https://thevisits.in/sch%C3%B6nbrunn-palace-in-vienna-austria-indeed-you-are-pretty-as-your-pictures
+
+![](/uploads/01.jpeg)
 
 District: 15th (1150), 16th (1160), 17th (1170), 18th (1180) & 19th (1190)
 
@@ -87,7 +91,7 @@ Most common vocabulary for apartment hunting in Vienna:
 
 -Kaution = Deposit normally 2-3 months gross rent which you get back.
 
--Running costs (rubbish, cleaning, elevator, water etc), can inclusive heating and warm water (Heizung, Warmwasser). They can be calculated per m2 or per flat and on average/month (akonto). Gets balanced 1xyear (norm. April/May), this is when you either pay on top or get money back
+-Running costs (rubbish, cleaning, elevator, water etc), can inclusive heating and warm water (Heizung, Warmwasser). They can be calculated per m2 or per flat and on average/month (akonto).&nbsp;
 
 -Provision = real estate agent’s commission
 
@@ -129,7 +133,11 @@ Facebook: Stadtbekannt Wien (in German though)
 
 #### 4. Health insurance and social security benefits
 
-Both, Health insurance and social security payments are mandatory for all Austria residents. All long-term residents will be eligible for public health insurance & private health insurance is also available which will benefit you extra treatments. Most foreign residents who move to the Austria are required to obtain public health insurance. Residents from EU/EFTA countries on short stay visits can use their European Health Insurance Card (EHIC) but will need to switch to Austria health insurance or International Insurance if staying for longer.
+Both, Health insurance and social security payments are mandatory for all Austria residents. All long-term residents will be eligible for public health insurance & private health insurance is also available which will benefit you extra treatments. Most foreign residents who move to the Austria are required to obtain public health insurance.
+
+![](/uploads/e-card_Mustermann.jpg)
+
+Residents from EU/EFTA countries on short stay visits can use their European Health Insurance Card (EHIC) but will need to switch to Austria health insurance or International Insurance if staying for longer.
 
 #### 5. Opening a bank account in the Austria
 
@@ -143,13 +151,7 @@ Attention: US citizen might face difficulty to open a bank account in most of th
 
 City go-to classified website for everything at https://www.willhaben.at/iad .
 
-&nbsp;
-
-&nbsp;
-
-&nbsp;
-
-&nbsp;
+![](/uploads/willhaben.png)
 
 #### 7. Getting connected: meeting people in Vienna
 {: .present-before-paste}
