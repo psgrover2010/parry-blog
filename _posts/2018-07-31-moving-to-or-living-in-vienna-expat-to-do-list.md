@@ -1,7 +1,7 @@
 ---
 layout: post
 current: post
-cover: uploads/DSC_0010-02.jpeg
+cover: uploads/20180802_150555-01.jpeg
 navigation: true
 title: Moving to or Living in Vienna-Expat to-do list
 date: 2018-07-31 00:00:00
@@ -29,7 +29,7 @@ Those from outside the EU/EFTA moving to Austria will need to apply for a respec
 
 The townhall registration document known as the ‘’Meldezettel’’ is your proof of existence in the city. Please remember this must be completed within 3 days as of arrival and vice-versa when you leave Austria permanently. This is also applicable if you change your address from one place to other.
 
-Without it, you don’t exist in Austria as you need it to apply for everything, from a library card, Mobile phone contract, Bank account to getting your social security number. It’s simple to get, and you’ll find more info here- [https://www.wien.gv.at.](https://www.wien.gv.at .)
+Without it, you don’t exist in Austria as you need it to apply for everything, from a library card, Mobile phone contract, Bank account to getting your social security number. It’s simple to get, and you’ll find more info here- [https://www.wien.gv.at.](https://www.wien.gv.at .){: .cc-active}
 
 ![](/uploads/20180802_150555-01.jpeg)
 
