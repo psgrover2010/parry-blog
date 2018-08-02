@@ -13,7 +13,7 @@ subclass: post tag-getting-started
 author: parry
 ---
 
-I wish someone would have told me this list, before I moved here though I was aware of many however not completely. I must say moving to a new country can certainly a big change in my life, no matter how much I was traveling before, and have knowledge and experience. Living in a country & daily experience always give intercultural learning.
+I wish someone would have told me this list, before I moved here though I was aware of many however not completely. I must say moving to a new country can certainly a big change in my life, no matter how much I was traveling before, and have knowledge and experience. Living in a country always give intercultural learning.
 
 Undoubtedly, Vienna is a beautiful place to live in (and one of the major tourist destination in Europe) and I don’t regret at all on my decision. I decided to write this post which will be bit different than the rest of the stories.
 
@@ -21,15 +21,15 @@ Undoubtedly, Vienna is a beautiful place to live in (and one of the major touris
 
 #### 1. First thing first - Immigration and Registration
 
-European Union / European Free Trade Association residents can enter in Austria without requiring a visa and can remain in the country visa-free, apart from those arriving from Croatia which still faces restrictions on long stays. However, anyone from the EU/EFTA staying for longer than four months will need to register locally in Magistrate office.
+European Union / European Free Trade Association residents can enter in Austria without requiring a visa and can remain in the country visa-free, apart from those arriving from Croatia which still faces restrictions on long stays. However, anyone from EU/EFTA staying for longer than four months will need to register locally in Magistrate office.
 
-Those from outside the EU/EFTA moving to Austria will need to apply for a respective work permit or residence permit to stay in the country. For more information regarding Immigration rule & registration requirement I recommend to ask best law firm in Vienna, http://www.oberhammer.co.at/en .
+Those from outside the EU/EFTA moving to Austria will need to apply for a respective work permit or residence permit to stay in the country. For more information regarding Immigration rule & registration requirement I recommend to ask best law firm in Vienna- Oberhammer Rechtsanw&auml;lte GmbH [http://www.oberhammer.co.at/en.](http://www.oberhammer.co.at/en .)
 
 **Secondly, to get the holy Meldezettel**
 
 The townhall registration document known as the ‘’Meldezettel’’ is your proof of existence in the city. Please remember this must be completed within 3 days as of arrival and vice-versa when you leave Austria permanently. This is also applicable if you change your address from one place to other.
 
-Without it, you don’t exist in Austria as you need it to apply for everything, from a library card, Mobile phone contract, Bank account to getting your social security number. It’s simple to get, and you’ll find more info here- https://www.wien.gv.at .
+Without it, you don’t exist in Austria as you need it to apply for everything, from a library card, Mobile phone contract, Bank account to getting your social security number. It’s simple to get, and you’ll find more info here- [https://www.wien.gv.at.](https://www.wien.gv.at .)
 
 ![](/uploads/20180802_150555-01.jpeg)
 
@@ -55,7 +55,7 @@ Living here… will cost you high to low. District one is the main city centre, 
 
 District: 3rd (1030) & 4th (1040)
 
-Living here… These districts are close to the city’s green area and amazing running paths, good atmospheres from the neighborhood. These district costs relatively well-priced, however both districts cost is increasing.
+Living here… will cost you medium. These districts are close to the city’s green area and amazing running paths, good atmospheres from the neighborhood. These district costs relatively well-priced, however both districts cost is increasing.
 
 District: 5th (1050), 6th (1060), 7th (1070) & 8th (1080)
 
@@ -67,7 +67,7 @@ Living here…These districts has mix cultural people- In 9th from Student to Me
 
 **Please read my other article on Sch&ouml;nbrunn Palace-**
 
-https://thevisits.in/sch%C3%B6nbrunn-palace-in-vienna-austria-indeed-you-are-pretty-as-your-pictures
+[https://thevisits.in/sch%C3%B6nbrunn-palace-in-vienna-austria-indeed-you-are-pretty-as-your-pictures](https://thevisits.in/sch%C3%B6nbrunn-palace-in-vienna-austria-indeed-you-are-pretty-as-your-pictures)
 
 ![](/uploads/01.jpeg)
 
@@ -101,25 +101,25 @@ Neubau = modern apartment
 
 The top websites to look for an apartment
 
-&nbsp; &nbsp; &nbsp; https://www.willhaben.at/iad/immobilien/mietwohnungen/
+&nbsp; &nbsp; &nbsp; [https://www.willhaben.at/iad/immobilien/mietwohnungen/](https://www.willhaben.at/iad/immobilien/mietwohnungen/)
 
-&nbsp; &nbsp; &nbsp; https://derstandard.at/immobiliensuche
+&nbsp; &nbsp; &nbsp; [https://derstandard.at/immobiliensuche](https://derstandard.at/immobiliensuche)
 
-&nbsp; &nbsp; &nbsp;&nbsp; https://www.wohnnet.at/
+&nbsp; &nbsp; &nbsp;&nbsp; [https://www.wohnnet.at/](https://www.wohnnet.at/)
 
-&nbsp; &nbsp; &nbsp;&nbsp; https://mietguru.at/
+&nbsp; &nbsp; &nbsp;&nbsp; [https://mietguru.at/](https://mietguru.at/)
 
-&nbsp; &nbsp; &nbsp;&nbsp; https://www.privatimmobilien.at/
+&nbsp; &nbsp; &nbsp;&nbsp; [https://www.privatimmobilien.at/](https://www.privatimmobilien.at/)
 
-&nbsp; &nbsp; &nbsp;&nbsp; http://www.immosuchmaschine.at/
+&nbsp; &nbsp; &nbsp;&nbsp; [http://www.immosuchmaschine.at/](http://www.immosuchmaschine.at/)
 
-&nbsp; &nbsp; &nbsp;&nbsp; https://www.immobilienscout24.at/
+&nbsp; &nbsp; &nbsp;&nbsp; [https://www.immobilienscout24.at/](https://www.immobilienscout24.at/)
 
-&nbsp; &nbsp; &nbsp;&nbsp; http://www.miet-wohnungen.at/
+&nbsp; &nbsp; &nbsp;&nbsp; [http://www.miet-wohnungen.at/](http://www.miet-wohnungen.at/)
 
-&nbsp; &nbsp; &nbsp;&nbsp; http://www.bazar.at/wien-wohnungen-anzeigen,dir,1,cId,14,fc,9,loc,9,tp,0,at,0
+&nbsp; &nbsp; &nbsp;&nbsp; [http://www.bazar.at/wien-wohnungen-anzeigen,dir,1,cId,14,fc,9,loc,9,tp,0,at,0](http://www.bazar.at/wien-wohnungen-anzeigen,dir,1,cId,14,fc,9,loc,9,tp,0,at,0)
 
-&nbsp; &nbsp; &nbsp;&nbsp; http://www.findmyhome.at/
+&nbsp; &nbsp; &nbsp;&nbsp; [http://www.findmyhome.at/](http://www.findmyhome.at/)
 
 Other sources of info
 
@@ -143,13 +143,13 @@ Residents from EU/EFTA countries on short stay visits can use their European Hea
 
 Opening a bank account in Austria is fairly straightforward like other country. Most banks will have English-speaking staff and there are also financial providers who cater specifically for expat clients. To open an Austria bank account, you will usually need to have valid ID and proof of address (Meldezettel).
 
-Most Austrian banks offer online banking. Credit cards and international money transfers are also commonly available although they are quite expensive. I would recommend to use TransferWise- https://transferwise.com &nbsp;or Western Union- https://www.westernunion.com &nbsp;or any other in similar way.
+Most Austrian banks offer online banking. Credit cards and international money transfers are also commonly available although they are quite expensive. I would recommend to use TransferWise- https://transferwise.com. Use my link [https://transferwise.com/u/parvinders](https://transferwise.com/u/parvinders)&nbsp; and get your first transfer free with no commission.&nbsp; Western Union is also a good option [https://www.westernunion.com](https://www.westernunion.com) &nbsp;or use any other in similar way.
 
 Attention: US citizen might face difficulty to open a bank account in most of the Austrian bank however Erste Bank allow with some conditions. Would recommend to get in touch with the bank directly and checkout.
 
 #### 6. Vienna’s marketplace for top to bottom things
 
-City go-to classified website for everything at https://www.willhaben.at/iad .
+City go-to classified website for everything at [https://www.willhaben.at/iad](https://www.willhaben.at/iad).
 
 ![](/uploads/willhaben.png)
 
@@ -160,21 +160,14 @@ Moving to a new city can be like the first step towards your new life wherein yo
 
 A list of communities for good connections
 
-Internations Vienna (a professional expat networking group hosting events)
-
-Vienna Expats (a mixed group of expats meeting on a regular basis)
-
-Women of Vienna
-
-AWA (A international group of Expat women helping and connecting women in Vienna.
-
-Vienna Babies Club (an expat network of international families)
-
-English speakers in Vienna on Facebook
-
-Indian in Vienna on Facebook
-
-Americans in Vienna on Facebook
+* Internations Vienna (a professional expat networking group hosting events
+* Vienna Expats (a mixed group of expats meeting on a regular basis)
+* Women of Vienna
+* AWA (A international group of Expat women helping and connecting women in Vienna.
+* Vienna Babies Club (an expat network of international families)
+* English speakers in Vienna on Facebook
+* Indian in Vienna on Facebook
+* Americans in Vienna on Facebook
 
 #### 8. Awareness on quiet Sundays
 
@@ -214,7 +207,7 @@ Mobile phone in Austria are called Handy. There are many providers and it would 
 
 A1: previously known state-owned mobile provider. It’s offered the best coverage and good quality service. I also use the same however – if you have to call their agents, be prepared for a long wait on hold. &nbsp;
 
-3: This is the Hutchinson company called Drei (number 3). This is the second-best network in Vienna and they are pursuing the multimedia approach and rates within the 3 networks are very cheap. Please check the details of your contract!&nbsp;&nbsp;
+3: This is the Hutchinson company called Drei (number 3). This is the second-best network in Vienna and they are pursuing the multimedia ![](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAAEAAAABCAYAAAAfFcSJAAAAAXNSR0IArs4c6QAAAARnQU1BAACxjwv8YQUAAAANSURBVBhXY1i1atV/AAb+Av41sKiDAAAAAElFTkSuQmCC){: .cms-image-placeholder}approach and rates within the 3 networks are very cheap. Please check the details of your contract! &nbsp;
 
 Tele-ring: The discount provider. Not recommended as they are almost bankrupt but they are attacking the bigger providers.&nbsp;
 
@@ -230,6 +223,8 @@ A new phone can cost you between 30 to 40 euro per month in contract type while 
 
 This is the time to forget about the delay and struggle on roads. I am really surprised why people use car within city when Vienna has best transportation network. Getting around is approximate 30 minutes anywhere within city.
 
+![](/uploads/15232064_1111054198950457_7762258857144561879_n-01.jpeg)
+
 Vienna has Buses, local trains, trams and underground lines which will take you almost anywhere in the city in no time at all. Vienna public transport has five underground lines (U1, U2, U3, U4 & U6) with U5 missing with mystery however it’s under construction and will now very likely to be built someday in few years. Vienna has 29 tram, 127 Bus lines including night lines and on weekend & public holiday in Vienna underground remains at the service of its passengers all night. &nbsp;
 
 A single ticket costs EUR 2.20 and monthly pass about Euro 50 wherein I would recommend to take yearly pass with which you can avail all public transport in one Euro per day.
@@ -244,7 +239,7 @@ A single ticket costs EUR 2.20 and monthly pass about Euro 50 wherein I would re
 
 -Buy tickets online: Wiener Linien Online Shop&nbsp;
 
-For yearly pass please look for Wiener Linien office-https://www.wienerlinien.at/eportal3/
+For yearly pass please look for Wiener Linien office-[https://www.wienerlinien.at/eportal3/](https://www.wienerlinien.at/eportal3/)
 
 &nbsp;
 
