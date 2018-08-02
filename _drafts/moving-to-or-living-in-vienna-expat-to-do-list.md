@@ -207,7 +207,7 @@ Mobile phone in Austria are called Handy. There are many providers and it would 
 
 A1: previously known state-owned mobile provider. It’s offered the best coverage and good quality service. I also use the same however – if you have to call their agents, be prepared for a long wait on hold. &nbsp;
 
-3: This is the Hutchinson company called Drei (number 3). This is the second-best network in Vienna and they are pursuing the multimedia ![](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAAEAAAABCAYAAAAfFcSJAAAAAXNSR0IArs4c6QAAAARnQU1BAACxjwv8YQUAAAANSURBVBhXY1i1atV/AAb+Av41sKiDAAAAAElFTkSuQmCC){: .cms-image-placeholder}approach and rates within the 3 networks are very cheap. Please check the details of your contract! &nbsp;
+3: This is the Hutchinson company called Drei (number 3). This is the second-best network in Vienna and they are pursuing the multimedia approach and rates within the 3 networks are very cheap. Please check the details of your contract! &nbsp;
 
 Tele-ring: The discount provider. Not recommended as they are almost bankrupt but they are attacking the bigger providers.&nbsp;
 
