@@ -31,7 +31,7 @@ The townhall registration document known as the ‘’Meldezettel’’ is your 
 
 Without it, you don’t exist in Austria as you need it to apply for everything, from a library card, Mobile phone contract, Bank account to getting your social security number. It’s simple to get, and you’ll find more info here- https://www.wien.gv.at .
 
-**Meldezettel PHOTO**
+![](/uploads/20180802_150555-01.jpeg)
 
 #### 2. Where to live and how to find best accommodation
 
@@ -204,9 +204,9 @@ The following shops are usually open on Sunday and public holiday, too:
 
 Learning a local language is always a plus point to interact with locals. Most of the people speak fluent English in this city however always prefer to speak in Deutsch (German). Don’t be surprised if someone says that they are not good in English while they can speak very well, I believe this is because everyone prefers local language. Viennese you’ll learn on the street, but first you need to learn yourself up for a German course. Doors open in this city when you learn your own and even if speaks in German with English words scattered. Here’s a few places to learn German FREE:&nbsp;
 
-- [Open German course](/uploads/German Course.pdf) in Amerlinghaus, Stiftgasse 8, 1070 Vienna.&nbsp;
+* [Open German course](/uploads/German Course.pdf) in Amerlinghaus, Stiftgasse 8, 1070 Vienna.&nbsp;
 
-- [loginsleben ](/uploads/German Course loginsleben.pdf)in Weiglgasse 19/4-6, 1150 Vienna.&nbsp;
+* [loginsleben ](/uploads/German Course loginsleben.pdf)in Weiglgasse 19/4-6, 1150 Vienna.&nbsp;
 
 #### 11. Choose best network for mobile phones
 
