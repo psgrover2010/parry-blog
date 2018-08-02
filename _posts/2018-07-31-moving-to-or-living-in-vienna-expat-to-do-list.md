@@ -29,7 +29,7 @@ Those from outside the EU/EFTA moving to Austria will need to apply for a respec
 
 The townhall registration document known as the ‘’Meldezettel’’ is your proof of existence in the city. Please remember this must be completed within 3 days as of arrival and vice-versa when you leave Austria permanently. This is also applicable if you change your address from one place to other.
 
-Without it, you don’t exist in Austria as you need it to apply for everything, from a library card, Mobile phone contract, Bank account to getting your social security number. It’s simple to get, and you’ll find more info here- [https://www.wien.gv.at.](https://www.wien.gv.at .){: .cc-active}
+Without it, you don’t exist in Austria as you need it to apply for everything, from a library card, Mobile phone contract, Bank account to getting your social security number. It’s simple to get, and you’ll find more info here-&nbsp;[https://www.wien.gv.at/](https://www.wien.gv.at/)
 
 ![](/uploads/20180802_150555-01.jpeg)
 
@@ -242,6 +242,8 @@ A single ticket costs EUR 2.20 and monthly pass about Euro 50 wherein I would re
 For yearly pass please look for Wiener Linien office-[https://www.wienerlinien.at/eportal3/](https://www.wienerlinien.at/eportal3/)
 
 &nbsp;
+
+What do you like about life in Vienna? Share your thoughts in the comments below.
 
 &nbsp;
 
