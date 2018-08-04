@@ -6,7 +6,7 @@ navigation: true
 title: Split is Magic of Croatia best places to visit
 date: 2018-06-25 00:00:00
 tags:
-  - Photography
+  - Europe
 class: post-template
 subclass: post tag-getting-started
 author: parry
