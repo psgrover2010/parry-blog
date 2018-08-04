@@ -3,7 +3,7 @@ layout: post
 current: post
 cover: uploads/b-1.jpeg
 navigation: true
-title: The best places to visits in Split- Croatia
+title: Split is Magic of Croatia best places to visit
 date: 2018-06-25 00:00:00
 tags:
   - Photography
@@ -12,7 +12,7 @@ subclass: post tag-getting-started
 author: parry
 ---
 
-# &nbsp;
+#  
 
 Split, it’s a town on Croatia’s Dalmatian Coast and very famous for its beaches & the fortress like complex at its centre, Diocletian's Palace. It was build by the Roman emperor in the 4th century. You will find numerous shops, bars, cafes, hotels and houses surrounding.
 
@@ -30,23 +30,23 @@ Photo
 
 #### 2. Diocletian’s Palace
 
-&nbsp;
+ 
 
 #### 3. Statue of Marko Marulić
 
-&nbsp;
+ 
 
 #### 4. Sv Frane Church & Monastery
 
-&nbsp;
+ 
 
 #### 5. Hiking in Marjan Hills
 
-&nbsp;
+ 
 
 Park is open all year round and the best time to visit is in the morning. According to Law on protection of natural environment of the Republic of Croatia, Park-forest Marjan is the area under special regulations. Therefore, witin the entire area of the park-forest, it is strictly prohibited to smoke or use any kind of open flame!
 
-I must say this hiking has many, many steps (no wonder why the people of Split are so trim and fit!) take you from the Veli Varos neighborhood up and up until you come to Caf&eacute; Bar Vidilica with a splendid view that encompasses all Split and a good number of its off-shore islands. At the foot of Marjan hill are several of Split's most interesting museums, including the Mestrovic Gallery and the Museum of Croatian Archaeological Monuments. And some of Split's best beaches lie at the foot of Marjan hill.
+I must say this hiking has many, many steps (no wonder why the people of Split are so trim and fit!) take you from the Veli Varos neighborhood up and up until you come to Café Bar Vidilica with a splendid view that encompasses all Split and a good number of its off-shore islands. At the foot of Marjan hill are several of Split's most interesting museums, including the Mestrovic Gallery and the Museum of Croatian Archaeological Monuments. And some of Split's best beaches lie at the foot of Marjan hill.
 
 How to reach
 
@@ -54,13 +54,13 @@ Bus line 12 which will take you to the most popular beaches on Marjan hill. Howe
 
 ![](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAAEAAAABCAYAAAAfFcSJAAAAAXNSR0IArs4c6QAAAARnQU1BAACxjwv8YQUAAAANSURBVBhXY1i1atV/AAb+Av41sKiDAAAAAElFTkSuQmCC){: .cms-image-placeholder}
 
-&nbsp;
+ 
 
-&nbsp;
+ 
 
 #### 6. Luggage storage in Split
 
-&nbsp;
+ 
 
 Luggage storage in Split can be found inside the bus station building. Working hours during the summer season are from 06:00 till 22:00 and during the rest of the year from 07:00 till 21:00; the price is approximately 5 kuna for the first hour and 1.50 kuna for every next hour.
 
