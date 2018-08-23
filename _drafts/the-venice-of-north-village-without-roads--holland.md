@@ -16,15 +16,19 @@ I first got to know about this place when I was planning for Holland trip and al
 
 ![](/uploads/DSC_0141-01.jpeg)
 
-I was there last week - together with my love and also with our dearest friends Inderjeet Singh & Falak. I think when people talks about canals and bridges, the first thing that jumps into our minds is probably Venice in Italy however what if I tell you that there is a village, near to Amsterdam, which offers the similar scene including bridge-canal and less crowd.
+I was there last week - together with my love and also with our dearest friends Inderjeet Singh & Falak. I think when people talks about canals and bridges, the first thing that jumps into our minds is probably Venice in Italy however what if I tell you that there is a village, near to Amsterdam, which offers the similar scene including bridge-canal and less crowd. Have you ever thought of Venice with no crowds or Stockholm with no modernity? Giethoorn has all answers!
 
 ![](/uploads/DSC_0340-01.jpeg)
 
-The best part here is, you can hire a boat and run yourself via peacefully canals, drifting under tall old wooden bridges and hearing those ducks quacking just by the boat.
+The best part here is, you can hire a boat and run yourself via peacefully canals, drifting under tall old wooden bridges and hearing those ducks quacking just by the boat.&nbsp; The good news is that, you don’t need a boating license or anything to rent a boat in Giethoorn. Owner will ask you to deposit some Euro or your original personal ID so that they can challenge you if you do return boat. The downside to this is of course a million of others boats with clueless unlicensed boaters. I can’t lie to you, I saw a lot of awkward collisions and our boat often hit by others in crowd too.&nbsp;
 
 ![](/uploads/DSC_0301-01.jpeg)
 
 There are more than 200 boats and about 25 companies are renting out the boat for Canal tour. I suggest to hire the boat and drive yourself because this is the moment you will never forget, Though we were not expert in the beginning but later it was like we were driving a car on water. It was unforgettable moment of life to spend time in Heaven of Holland. Sports lover can also enjoy Kayaking and Canoeing in Dutch Green Venice.
+
+#### Sightseeing canal cruise
+
+If you just want to sit back and not having to worry about manning your own boat, there are also bigger, sightseeing canal boats that whisk you through the highlights of Giethoorn in 1 to 2 hours depending on the tour you choose.
 
 ![](/uploads/DSC_0118-01.jpeg)
 
@@ -77,6 +81,18 @@ This place has about 2,600 citizens who live in homes of their own private islan
 &nbsp;
 
 ![](/uploads/DSC_0247-01.jpeg)
+
+#### Tips before Visiting Giethoorn, The Netherlands
+
+* Do consider staying the night
+
+Pack some picnic supplies because Giethoorn is such a tourist-heavy village, you can of course expect to pay tourist-heavy prices. There is a SPAR Supermarket on the outskirts of town, but it might be easier to just bring your own.
+
+I think this town will be considered as Asian town rather Dutch as you will hear as much Chinese as you hear Dutch. This town is insanely popular among Chinese tourists.
+
+Last but not least, be respectful. Remember this is still a place where people live. Never intrude on private property, obey the fences/gates and signs that say No Trespassing. Why I have included here as I saw there were too many people trying to open the gates for photos.
+
+&nbsp;
 
 Hope… this has stolen your heart and you plan to visit here soon. Do write your experience or comment below.
 
