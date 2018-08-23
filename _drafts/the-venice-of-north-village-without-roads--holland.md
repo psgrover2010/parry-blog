@@ -48,9 +48,7 @@ The best thing to do here is to relax and admire the canals, and the beautiful s
 
 ![](/uploads/DSC_0318-01.jpeg)
 
-![](/uploads/snapseed-01.jpeg)
-
-#### ![](/uploads/DSC_0312-01.jpeg)
+![](/uploads/DSC_0312-01.jpeg)
 
 &nbsp;
 
@@ -68,13 +66,15 @@ I found beautiful & peaceful place to stay when I was in town:
 
 April and early May is peak season in the Netherlands due to the tulips in bloom so avoid this time. If possible, try to get to Giethoorn as early as possible in the morning time and/or arrive after lunch close to 3pm. &nbsp;Most of the tourist groups head back to other cities in The Netherlands in evening and it’s such a relief to experience Giethoorn without the tourists.
 
-![](/uploads/DSC_0180-01.jpeg)
+&nbsp;
 
 I thought that Giethoorn wasn’t well known…but it’s an open secret. Just be patient and consider staying overnight to get the beautiful canals to yourself in the morning.
 
 This place has about 2,600 citizens who live in homes of their own private islands. About 180 bridges are the only way to arrive to most of the houses, and of course, the second option are the small boats.
 
 ![](/uploads/DSC_0130-01.jpeg)
+
+&nbsp;
 
 ![](/uploads/DSC_0247-01.jpeg)
 
