@@ -70,7 +70,7 @@ I found beautiful & peaceful place to stay when I was in town:
 
 April and early May is peak season in the Netherlands due to the tulips in bloom so avoid this time. If possible, try to get to Giethoorn as early as possible in the morning time and/or arrive after lunch close to 3pm. &nbsp;Most of the tourist groups head back to other cities in The Netherlands in evening and it’s such a relief to experience Giethoorn without the tourists.
 
-&nbsp;
+![](/uploads/DSC_0317-01.jpeg)
 
 I thought that Giethoorn wasn’t well known…but it’s an open secret. Just be patient and consider staying overnight to get the beautiful canals to yourself in the morning.
 
@@ -85,14 +85,11 @@ This place has about 2,600 citizens who live in homes of their own private islan
 #### Tips before Visiting Giethoorn, The Netherlands
 
 * Do consider staying the night
+* Pack some stuff for picnic as Giethoorn is such a tourist-heavy village, you can of course expect to pay tourist-heavy prices. There is a SPAR Supermarket on the outskirts of town, but it might be easier to just bring your own.
+* I think this town will be considered as Asian town rather Dutch as you will hear as much Chinese as you hear Dutch. This town is insanely popular among Chinese tourists.&nbsp;
+* Last but not least, be respectful. Remember this is still a place where people live. Never intrude on private property, obey the fences/gates and signs that say No Trespassing. Why I have included this here as I saw there were too many people trying to open the gates for photos.
 
-Pack some picnic supplies because Giethoorn is such a tourist-heavy village, you can of course expect to pay tourist-heavy prices. There is a SPAR Supermarket on the outskirts of town, but it might be easier to just bring your own.
-
-I think this town will be considered as Asian town rather Dutch as you will hear as much Chinese as you hear Dutch. This town is insanely popular among Chinese tourists.
-
-Last but not least, be respectful. Remember this is still a place where people live. Never intrude on private property, obey the fences/gates and signs that say No Trespassing. Why I have included here as I saw there were too many people trying to open the gates for photos.
-
-&nbsp;
+![](/uploads/DSC_0333-01.jpeg)
 
 Hope… this has stolen your heart and you plan to visit here soon. Do write your experience or comment below.
 
