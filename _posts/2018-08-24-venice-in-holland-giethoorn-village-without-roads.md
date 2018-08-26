@@ -30,7 +30,7 @@ There are more than 200 boats and about 25 companies are renting out the boat fo
 
 #### Sightseeing canal cruise
 
-If you just want to sit back and not having to worry about manging your own boat, there are also bigger, sightseeing canal boats that whisk you through the highlights of Giethoorn in 1 to 2 hours depending on the tour you choose.
+If you just want to sit back and not having to worry about managing your own boat, there are also bigger, sightseeing canal boats that whisk you through the highlights of Giethoorn in 1 to 2 hours depending on the tour you choose.
 
 ![](/uploads/DSC_0136-01.jpeg)
 
