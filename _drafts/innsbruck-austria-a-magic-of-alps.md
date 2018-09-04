@@ -12,13 +12,19 @@ subclass: post tag-getting-started
 author: parry
 ---
 
-There were two major cities in my heart when I was moving to Austria, first where I live Vienna and another is Innsbruck, A magical city which has year around affairs, attractions. If you are planning for Europe then blindly add this city in your bucket as this city has lots to do in every season.
+![](/uploads/DSC_0010-02.jpeg)
+
+There were two main places in my heart when I was moving to Austria, first where I live Vienna and another is Tyrol, A magical city which has year around affairs, attractions. If you are planning for Europe then blindly add Innsbruck city in your bucket list as this city has lots to do in every season.
 
 Innsbruck, this means the bridge over the Inn. The name dates back of the 1100’s century when there was an important bridge allowing access to either side of the Inn River. Many of the architectural marvels built during the time in 1300’s remains, like the Golden Roof and the Hofkirche.
 
 There are 2,657 tiles on the Golden Roof, but they’re not all made of gold. Innsbruck is one the city who hosted the Olympics more than once.
 
-## &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; Planning Your Visit
+![](/uploads/DSC_0013-01.jpeg)
+
+## ![](/uploads/DSC_0016-01.jpeg) &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;
+
+## &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; Planning Your Visit
 
 &nbsp;
 
@@ -26,7 +32,9 @@ There are 2,657 tiles on the Golden Roof, but they’re not all made of gold. In
 
 Innsbruck is located in Austria that is wedged between Italy and Germany. If you have a car then you can also visit in either Germany or Italy within 30 to 40 minutes. If you are traveling by rail, the Innsbruck main station connects with most of European cities such as Venice, Munich, Salzburg, and Zurich. There is an airport in Innsbruck.
 
-If you are traveling from Vienna then I would suggest to take the railjet direct from Vienna to Innsbruck. Book your tickets on www.&ouml;bb.at
+If you are traveling from Vienna then I would suggest to take the railjet direct from Vienna to Innsbruck. Book your tickets on [www.&ouml;bb.at](www.öbb.at)
+
+&nbsp;
 
 #### The Innsbruck Card
 
@@ -34,23 +42,39 @@ I would strongly recommend this card for each traveller to Innsbruck. This card 
 
 The Innsbruck card costs 24 hours €43, 48 hours €50 and 72 hours €59. Children less than 6 years are free and from 6 to 15 years: 50% discount.
 
-For full details on the Innsbruck card; https://www.innsbruck.info/en/experience/innsbruck-card.html
+For full details on the Innsbruck card; [https://www.innsbruck.info/en/experience/innsbruck-card.html](https://www.innsbruck.info/en/experience/innsbruck-card.html)
 
-&nbsp;
+We started our day from centre with visit to Markt Platz and the view of the colourful houses along with Inn river with mountains picked up my jaw from off the floor.
 
-We started our day from centre with visit to Markt Platz and the view of the colourful houses along with Inn river with mountains picked up my jaw from off the floor. I know that I have not travelled to many places yet and there are lots of places to seen in world however I am sure I’ll ever find a place whose beauty speaks as Innsbruck’s does. If I am wrong then prove me wrong in the comments with your favourite city pictures.
+![](/uploads/DSC_0012-01.jpeg)
+
+I know that I have not travelled to many places yet and there are lots of places to seen in world however I am sure I’ll ever find a place whose beauty speaks as Innsbruck’s does. If I am wrong then prove me wrong in the comments with your favourite city pictures.
+
+![](/uploads/DSC_0007-01.jpeg)
 
 I called Innsbruck city as a postcard city and I mean it as if you look anywhere then a postcard-worthy scene is waiting there to hail you. Definitely I will explore each season of this city and return again someday in Winter!
 
+![](/uploads/DSC_0020-01.jpeg)
+
 I think picture speaks itself and saying Innsbruck is perfect. Old Town walk is like taking you back in history with amazing architect. Innsbruck streets are filled with people on foot and riding bicycles. People are friendly and you will never feel bad if you do not know German language.
+
+![](/uploads/DSC_0035-01.jpeg)
 
 On every move in the street I was stopping myself and taking pictures of the incredible architecture. It was just so stunning!
 
-We also stopped at the Trimphal Arch that’s a lovely monument welcoming you to Innsbruck
+![](/uploads/DSC_0028-01.jpeg)
+
+We also stopped at the Trimphal Arch that’s a lovely monument welcoming you to Innsbruck.
+
+![](/uploads/DSC_0022-01.jpeg)
 
 ###### Spend some time at Maria-Theresien Street
 
 Take a walk from Triumphal Arch to the Old Town, this street is one of the busiest in Innsbruck and has a very wide variety of shops, cafes, bars and restaurants and also holds great historical significance in the city.
+
+![](/uploads/DSC_0017-02.jpeg)
+
+![](/uploads/DSC_0019-01.jpeg)
 
 #### Best things to do in Innsbruck?
 
