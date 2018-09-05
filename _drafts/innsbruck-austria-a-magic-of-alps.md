@@ -50,6 +50,8 @@ We started our day from centre with visit to Markt Platz and the view of the col
 
 I know that I have not travelled to many places yet and there are lots of places to seen in world however I am sure I’ll ever find a place whose beauty speaks as Innsbruck’s does. If I am wrong then prove me wrong in the comments with your favourite city pictures.
 
+![](/uploads/IMG_20180515_105745_428-01.jpeg)
+
 ![](/uploads/DSC_0007-01.jpeg)
 
 I called Innsbruck city as a postcard city and I mean it as if you look anywhere then a postcard-worthy scene is waiting there to hail you. Definitely I will explore each season of this city and return again someday in Winter!
@@ -78,25 +80,31 @@ Take a walk from Triumphal Arch to the Old Town, this street is one of the busie
 
 #### Best things to do in Innsbruck?
 
-We visited these places in and around Innsbruck:
+We visited these places in and around Innsbruck and the best part was all visit were free as it was all inclusive in Innsbruck card.&nbsp;
 
-Alpen Zoo (Alpine Zoo) [website]
+Alpen Zoo (Alpine Zoo) [[website](https://www.alpenzoo.at/en/)]
 
-Goldenes Dachl (Golden Roof) [website]
+Goldenes Dachl (Golden Roof) [[website](https://www.innsbruck.info/en/facilities/details/infrastruktur/golden-roof-innsbruck.html)]
 
-Court Church Innsbruck [website]
+Court Church Innsbruck [[website](https://www.innsbruck.info/en/facilities/details/infrastruktur/court-church-innsbruck.html)]
 
-Kaiserliche Hofburg (Imperial Palace) [website]
+Kaiserliche Hofburg (Imperial Palace) [[website](https://www.innsbruck.info/en/facilities/details/infrastruktur/imperial-palace-innsbruck.html)]
 
-Bergisel Ski Jump Innsbruck [website]
+Bergisel Ski Jump Innsbruck [[website](http://www.bergisel.info/at/index.php)]
 
-Nordkette Mountain [website]
+My favourite Nordkette Mountain [[website](https://www.innsbruck.info/en/innsbruck-city/experience/sightseeing-in-innsbruck/nordkette-mountain.html)] Do not miss this for amazing view&nbsp;
 
-#### Amaze yourself at crystal world, Swarovski
+![](/uploads/20180619-235538.jpg)
 
-We started our 2nd day to explore crystal world as I believe every one like jewellery which looks like diamond and when you get a chance to see how it was made then why not and when I went to this place with this wrong idea because I thought we were going to get a factory tour or to see how the Swarovski crystals were made.
+#### Amaze yourself at crystal world, Swarovski in Wattens
 
-Surprisingly: YOU DON’T. Crystal world is more an art experience than an educational experience, so if you’re arriving with that mindset, I’m sure you’ll understand the purpose of the park better. &nbsp;Of course, you can also do shopping here as well and if you are a crystal fan, you’ll get some good discounts.
+We started our 2nd and last day to explore crystal world before finishing our weekend in Innsbruck. When you get a chance to see how crystal can be made then why not so we went to this place with this wrong idea because I thought we were going to get a factory tour or to see how the Swarovski crystals were made.
+
+Surprisingly: Crystal world is more an art experience than an educational experience, So i would say just immerse into this magical place blending modern art and ancient history. Of course, you can also do shopping here as well.
+
+You will also find famous fashion designer Manish Arora collection under the title of&nbsp; “Life is Beautiful”. It's a collection of imaginative, colorful installations exclusively for the art spaces at Swarovski Crystal Worlds in 2017.&nbsp;
+
+&nbsp;
 
 All photos, videos and opinions in this article are my own, as always.
 
