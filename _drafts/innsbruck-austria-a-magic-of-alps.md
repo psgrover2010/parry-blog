@@ -3,7 +3,7 @@ layout: post
 current: post
 cover: uploads/DSC_0141-01.jpeg
 navigation: true
-title: 'Innsbruck, Austria: A Magic of Alps'
+title: 'Innsbruck, Austria: The Visits Secret Diary'
 date: 2018-08-24 00:00:00
 tags:
   - Europe
@@ -14,7 +14,7 @@ author: parry
 
 ![](/uploads/DSC_0010-02.jpeg)
 
-There were two main places in my heart when I was moving to Austria, first where I live Vienna and another is Tyrol, A magical city which has year around affairs, attractions. If you are planning for Europe then blindly add Innsbruck city in your bucket list as this city has lots to do in every season.
+There were two main places in my heart when I was moving to Austria, first where I live now, Vienna and another was Tyrol. Innsbruck in Tyrol is a magical city which has year around affairs, attractions. If you are planning for Europe then blindly add Innsbruck city in your bucket list as this city has lots to do in every season.
 
 Innsbruck, this means the bridge over the Inn. The name dates back of the 1100’s century when there was an important bridge allowing access to either side of the Inn River. Many of the architectural marvels built during the time in 1300’s remains, like the Golden Roof and the Hofkirche.
 
@@ -38,7 +38,7 @@ If you are traveling from Vienna then I would suggest to take the railjet direct
 
 #### The Innsbruck Card
 
-I would strongly recommend this card for each traveller to Innsbruck. This card is worth purchasing even if you are in Innsbruck for 24, 48 or 72 hours. You can plan to visit many of the museums, cable car and almost all of the Innsbruck attractions. &nbsp;The best part of Innsbruck card which includes free transportation on buses, trams, and bicycles (first 3 hours), and it even includes a free walking tour.
+I would strongly recommend this card for each traveller to Innsbruck. This card is worth purchasing even if you are in Innsbruck for 24, 48 or 72 hours. You can plan to visit many of the museums, cable car and almost all of the Innsbruck attractions. The best part of Innsbruck card which includes free transportation on buses, trams, and bicycles (first 3 hours), and it even includes a free walking tour.
 
 The Innsbruck card costs 24 hours €43, 48 hours €50 and 72 hours €59. Children less than 6 years are free and from 6 to 15 years: 50% discount.
 
@@ -48,7 +48,7 @@ We started our day from centre with visit to Markt Platz and the view of the col
 
 ![](/uploads/DSC_0012-01.jpeg)
 
-I know that I have not travelled to many places yet and there are lots of places to seen in world however I am sure I’ll ever find a place whose beauty speaks as Innsbruck’s does. If I am wrong then prove me wrong in the comments with your favourite city pictures.
+I know that I have not travelled to many places yet and there are lots of places to see in this beautiful world however I am sure I’ll ever find a place whose beauty speaks as Innsbruck’s does. If I am wrong then prove me wrong in the comments with your favourite city pictures.
 
 ![](/uploads/IMG_20180515_105745_428-01.jpeg)
 
