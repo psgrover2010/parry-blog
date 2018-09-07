@@ -100,11 +100,17 @@ My favourite Nordkette Mountain [[website](https://www.innsbruck.info/en/innsbru
 
 We started our 2nd and last day to explore crystal world before finishing our weekend in Innsbruck. When you get a chance to see how crystal can be made then why not so we went to this place with this wrong idea because I thought we were going to get a factory tour or to see how the Swarovski crystals were made.
 
+![](/uploads/DSC_0484-01.jpeg)
+
 Surprisingly: Crystal world is more an art experience than an educational experience, So i would say just immerse into this magical place blending modern art and ancient history. Of course, you can also do shopping here as well.
+
+![](/uploads/20180519_184919-01.jpeg)
+
+![](/uploads/DSC_0490-01.jpeg)
 
 You will also find famous fashion designer Manish Arora collection under the title of&nbsp; “Life is Beautiful”. It's a collection of imaginative, colorful installations exclusively for the art spaces at Swarovski Crystal Worlds in 2017.&nbsp;
 
-&nbsp;
+![](/uploads/DSC_0632-01.jpeg)
 
 All photos, videos and opinions in this article are my own, as always.
 
