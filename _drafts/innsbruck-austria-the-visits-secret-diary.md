@@ -1,12 +1,13 @@
 ---
 layout: post
 current: post
-cover: uploads/DSC_0141-01.jpeg
+cover: uploads/DSC_0010-02.jpeg
 navigation: true
 title: 'Innsbruck, Austria: The Visits Secret Diary'
 date: 2018-08-24 00:00:00
 tags:
   - Europe
+  - Austria
 class: post-template
 subclass: post tag-getting-started
 author: parry
