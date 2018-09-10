@@ -40,7 +40,7 @@ There are 2,657 tiles on the Golden Roof, but they’re not all made of gold. In
 Innsbruck is located in Austria that is wedged between Italy and Germany. If you have a car then you can also visit in either Germany or Italy within 30 to 40 minutes. If you are traveling by rail, the Innsbruck main station connects with most of European cities such as Venice, Munich, Salzburg, and Zurich. There is an airport in Innsbruck.
 {: .present-before-paste}
 
-If you are traveling from Vienna then I would suggest to take the railjet direct from Vienna to Innsbruck. Book your tickets on [www.&ouml;bb.at](www.öbb.at)
+If you are traveling from Vienna then I would suggest to take the railjet direct from Vienna to Innsbruck. Book your tickets on [&Ouml;BB](https://www.oebb.at/de/)
 {: .present-before-paste}
 
 #### The Innsbruck Card
