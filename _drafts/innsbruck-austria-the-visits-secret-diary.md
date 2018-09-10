@@ -14,111 +14,161 @@ author: parry
 ---
 
 ![](/uploads/DSC_0010-02.jpeg)
+{: .present-before-paste}
 
 There were two main places in my heart when I was moving to Austria, first where I live now, Vienna and another was Tyrol. Innsbruck in Tyrol is a magical city which has year around affairs, attractions. If you are planning for Europe then blindly add Innsbruck city in your bucket list as this city has lots to do in every season.
+{: .present-before-paste}
 
 Innsbruck, this means the bridge over the Inn. The name dates back of the 1100’s century when there was an important bridge allowing access to either side of the Inn River. Many of the architectural marvels built during the time in 1300’s remains, like the Golden Roof and the Hofkirche.
+{: .present-before-paste}
 
 There are 2,657 tiles on the Golden Roof, but they’re not all made of gold. Innsbruck is one the city who hosted the Olympics more than once.
+{: .present-before-paste}
 
 ![](/uploads/DSC_0013-01.jpeg)
+{: .present-before-paste}
 
 ## ![](/uploads/DSC_0016-01.jpeg) &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;
 
 ## &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; Planning Your Visit
 
 &nbsp;
+{: .present-before-paste}
 
 #### Getting to Innsbruck
 
 Innsbruck is located in Austria that is wedged between Italy and Germany. If you have a car then you can also visit in either Germany or Italy within 30 to 40 minutes. If you are traveling by rail, the Innsbruck main station connects with most of European cities such as Venice, Munich, Salzburg, and Zurich. There is an airport in Innsbruck.
+{: .present-before-paste}
 
 If you are traveling from Vienna then I would suggest to take the railjet direct from Vienna to Innsbruck. Book your tickets on [www.&ouml;bb.at](www.öbb.at)
-
-&nbsp;
+{: .present-before-paste}
 
 #### The Innsbruck Card
+{: .present-before-paste}
 
 I would strongly recommend this card for each traveller to Innsbruck. This card is worth purchasing even if you are in Innsbruck for 24, 48 or 72 hours. You can plan to visit many of the museums, cable car and almost all of the Innsbruck attractions. The best part of Innsbruck card which includes free transportation on buses, trams, and bicycles (first 3 hours), and it even includes a free walking tour.
+{: .present-before-paste}
 
 The Innsbruck card costs 24 hours €43, 48 hours €50 and 72 hours €59. Children less than 6 years are free and from 6 to 15 years: 50% discount.
+{: .present-before-paste}
 
 For full details on the Innsbruck card; [https://www.innsbruck.info/en/experience/innsbruck-card.html](https://www.innsbruck.info/en/experience/innsbruck-card.html)
+{: .present-before-paste}
 
 We started our day from centre with visit to Markt Platz and the view of the colourful houses along with Inn river with mountains picked up my jaw from off the floor.
+{: .present-before-paste}
 
 ![](/uploads/DSC_0012-01.jpeg)
+{: .present-before-paste}
 
 I know that I have not travelled to many places yet and there are lots of places to see in this beautiful world however I am sure I’ll ever find a place whose beauty speaks as Innsbruck’s does. If I am wrong then prove me wrong in the comments with your favourite city pictures.
+{: .present-before-paste}
 
 ![](/uploads/IMG_20180515_105745_428-01.jpeg)
+{: .present-before-paste}
 
 ![](/uploads/DSC_0007-01.jpeg)
+{: .present-before-paste}
 
 I called Innsbruck city as a postcard city and I mean it as if you look anywhere then a postcard-worthy scene is waiting there to hail you. Definitely I will explore each season of this city and return again someday in Winter!
+{: .present-before-paste}
 
 ![](/uploads/DSC_0020-01.jpeg)
+{: .present-before-paste}
 
 I think picture speaks itself and saying Innsbruck is perfect. Old Town walk is like taking you back in history with amazing architect. Innsbruck streets are filled with people on foot and riding bicycles. People are friendly and you will never feel bad if you do not know German language.
+{: .present-before-paste}
 
 ![](/uploads/DSC_0035-01.jpeg)
+{: .present-before-paste}
 
 On every move in the street I was stopping myself and taking pictures of the incredible architecture. It was just so stunning!
+{: .present-before-paste}
 
 ![](/uploads/DSC_0028-01.jpeg)
+{: .present-before-paste}
 
 We also stopped at the Trimphal Arch that’s a lovely monument welcoming you to Innsbruck.
+{: .present-before-paste}
 
 ![](/uploads/DSC_0022-01.jpeg)
+{: .present-before-paste}
 
 ###### Spend some time at Maria-Theresien Street
 
 Take a walk from Triumphal Arch to the Old Town, this street is one of the busiest in Innsbruck and has a very wide variety of shops, cafes, bars and restaurants and also holds great historical significance in the city.
+{: .present-before-paste}
 
 ![](/uploads/DSC_0017-02.jpeg)
+{: .present-before-paste}
 
 ![](/uploads/DSC_0019-01.jpeg)
+{: .present-before-paste}
 
 #### Best things to do in Innsbruck?
 
 We visited these places in and around Innsbruck and the best part was all visit were free as it was all inclusive in Innsbruck card.&nbsp;
+{: .present-before-paste}
 
 Alpen Zoo (Alpine Zoo) [[website](https://www.alpenzoo.at/en/)]
+{: .present-before-paste}
 
 Goldenes Dachl (Golden Roof) [[website](https://www.innsbruck.info/en/facilities/details/infrastruktur/golden-roof-innsbruck.html)]
+{: .present-before-paste}
 
 Court Church Innsbruck [[website](https://www.innsbruck.info/en/facilities/details/infrastruktur/court-church-innsbruck.html)]
+{: .present-before-paste}
 
 Kaiserliche Hofburg (Imperial Palace) [[website](https://www.innsbruck.info/en/facilities/details/infrastruktur/imperial-palace-innsbruck.html)]
+{: .present-before-paste}
 
 Bergisel Ski Jump Innsbruck [[website](http://www.bergisel.info/at/index.php)]
+{: .present-before-paste}
 
 My favourite Nordkette Mountain [[website](https://www.innsbruck.info/en/innsbruck-city/experience/sightseeing-in-innsbruck/nordkette-mountain.html)] Do not miss this for amazing view&nbsp;
+{: .present-before-paste}
 
 ![](/uploads/20180619-235538.jpg)
+{: .present-before-paste}
+
+###### [Watch YouTube story](https://youtu.be/IgReqqqkQpQ)
+
+&nbsp;
 
 #### Amaze yourself at crystal world, Swarovski in Wattens
 
 We started our 2nd and last day to explore crystal world before finishing our weekend in Innsbruck. When you get a chance to see how crystal can be made then why not so we went to this place with this wrong idea because I thought we were going to get a factory tour or to see how the Swarovski crystals were made.
+{: .present-before-paste}
 
 ![](/uploads/DSC_0484-01.jpeg)
+{: .present-before-paste}
 
 Surprisingly: Crystal world is more an art experience than an educational experience, So i would say just immerse into this magical place blending modern art and ancient history. Of course, you can also do shopping here as well.
+{: .present-before-paste}
 
 ![](/uploads/20180519_184919-01.jpeg)
+{: .present-before-paste}
 
 ![](/uploads/DSC_0490-01.jpeg)
+{: .present-before-paste}
 
 You will also find famous fashion designer Manish Arora collection under the title of&nbsp; “Life is Beautiful”. It's a collection of imaginative, colorful installations exclusively for the art spaces at Swarovski Crystal Worlds in 2017.&nbsp;
+{: .present-before-paste}
 
 ![](/uploads/DSC_0632-01.jpeg)
+{: .present-before-paste}
 
 All photos, videos and opinions in this article are my own, as always.
+{: .present-before-paste}
 
 &nbsp;
+{: .present-before-paste}
 
 &nbsp;
+{: .present-before-paste}
 
 &nbsp;
+{: .present-before-paste}
 
 &nbsp;
+{: .present-before-paste}
