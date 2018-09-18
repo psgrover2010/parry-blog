@@ -1,7 +1,7 @@
 ---
 layout: post
 current: post
-cover: uploads/IMG_20180613_130011_2
+cover: uploads/IMG_20180613_130011_234-01.jpeg
 navigation: true
 title: Karlsplatz Karlskirche in Vienna
 date: 2018-09-18 00:00:00
