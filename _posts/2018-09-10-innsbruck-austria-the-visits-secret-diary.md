@@ -131,7 +131,7 @@ My favourite Nordkette Mountain [[website](https://www.innsbruck.info/en/innsbru
 ![](/uploads/20180619-235538.jpg)
 {: .present-before-paste}
 
-###### [Watch YouTube story](https://youtu.be/IgReqqqkQpQ){: target="_blank"}
+###### [Watch YouTube story](https://www.youtube.com/watch?v=vUm58n4YdP0){: target="_blank"}
 
 &nbsp;
 
