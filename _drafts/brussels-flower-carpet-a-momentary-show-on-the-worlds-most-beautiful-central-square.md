@@ -8,9 +8,9 @@ title: >-
   square!
 date: 2018-09-18 00:00:00
 tags:
-  - Austria
-  - Photo Story
+  - Europe
 class: post-template
 subclass: post tag-getting-started
 author: parry
 ---
+
