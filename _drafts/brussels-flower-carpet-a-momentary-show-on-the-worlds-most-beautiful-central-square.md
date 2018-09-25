@@ -18,6 +18,8 @@ Every year, the Grand-Place in Brussels, Belgium celebrates anniversary as a **U
 
 Flowers, lights and fireworks!
 
+![](/Images/DSC_0329-01.jpeg)
+
 In few hours with more than hundred volunteers this can be made quickly for visitors to have a splendid view of this ephemeral masterpiece. The view from ground level is a site to see, the above ground view is to die for. If you won’t get the tickets for Panorama view then do not be gloomy as the lighting is amazingand the ground level view of the buildings within the Grand Place is equally impressive.
 
 Read quick **Five Ws** information to plan wisely.
@@ -44,9 +46,11 @@ I am sure this happen nowhere else in Europe. Prove me wrong with the details an
 
 We took the opportunity in year 2018 and visited from 16 to 18 August and witnessed the amazing Flower carpet at the Grand-Place in Brussels, Belgium.
 
+![](/Images/DSC_0332-01.jpeg)
+
 The carpet was approximate 100m and composed by about 120 volunteers, with nearly 1 million begonias in less than 4 hours. The 2018 theme of the flower carpet was Mexico. The Flower Carpet is dedicated to Guanajuato, a Mexican region with a particularly rich floral culture and tradition.
 
-**Watch the full light show and fireworks:**
+[**Watch the full light show and fireworks**](https://www.youtube.com/watch?v=F9wPN-2RTrc&amp;t=96s){: target="_blank"}
 
 &nbsp;
 
