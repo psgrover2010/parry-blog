@@ -18,8 +18,6 @@ Every year, the Grand-Place in Brussels, Belgium celebrates anniversary as a **U
 
 Flowers, lights and fireworks!
 
-![](/Images/DSC_0329-01.jpeg)
-
 In few hours with more than hundred volunteers this can be made quickly for visitors to have a splendid view of this ephemeral masterpiece. The view from ground level is a site to see, the above ground view is to die for. If you won’t get the tickets for Panorama view then do not be gloomy as the lighting is amazingand the ground level view of the buildings within the Grand Place is equally impressive.
 
 Read quick **Five Ws** information to plan wisely.
@@ -28,9 +26,13 @@ Read quick **Five Ws** information to plan wisely.
 
 In every 2 years in August the Grand Place in Brussels is always covered with a flower to celebrate the anniversary as a unesco world heritage site. Dates are not fixed however it’s always in August hence please plan in advance so you don’t miss this life time event.
 
+![](/Images/DSC_0329-01.jpeg)
+
 #### When did this happen first?
 
 The very first Flower Carpet was created in 1971 in Brussels. And it has been running non-stop every two years since 1986. A non-profit association assembles a committee of professionals who come up with the design and plan.&nbsp;
+
+&nbsp;
 
 #### When is the next?
 
