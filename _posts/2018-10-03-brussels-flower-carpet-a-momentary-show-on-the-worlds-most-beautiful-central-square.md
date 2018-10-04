@@ -6,7 +6,7 @@ navigation: true
 title: >-
   Brussels Flower Carpet: A momentary show on the world’s most beautiful central
   square!
-date: 2018-09-18 00:00:00
+date: 2018-10-03 00:00:00
 tags:
   - Europe
 class: post-template
@@ -32,7 +32,7 @@ In every 2 years in August the Grand Place in Brussels is always covered with a 
 
 #### When did this happen first?
 
-The very first Flower Carpet was created in 1971 in Brussels. And it has been running non-stop every two years since 1986. A non-profit association assembles a committee of professionals who come up with the design and plan.&nbsp;
+The very first Flower Carpet was created in 1971 in Brussels. And it has been running non-stop every two years since 1986. A non-profit association assembles a committee of professionals who come up with the design and plan. 
 
 ![](/Images/20180816_225830-01.jpeg)
 
@@ -55,9 +55,3 @@ We took the opportunity in year 2018 and visited from 16 to 18 August and witnes
 ![](/Images/DSC_0332-01.jpeg)
 
 The carpet was approximate 100m and composed by about 120 volunteers, with nearly 1 million begonias in less than 4 hours. The 2018 theme of the flower carpet was Mexico. The Flower Carpet is dedicated to Guanajuato, a Mexican region with a particularly rich floral culture and tradition.
-
-&nbsp;
-
-&nbsp;
-
-&nbsp;
