@@ -20,6 +20,8 @@ Flowers, lights and fireworks!
 
 In few hours with more than hundred volunteers this can be made quickly for visitors to have a splendid view of this ephemeral masterpiece. The view from ground level is a site to see, the above ground view is to die for. If you won’t get the tickets for Panorama view then do not be gloomy as the lighting is amazingand the ground level view of the buildings within the Grand Place is equally impressive.
 
+[**Watch the full light show and fireworks**](https://www.youtube.com/watch?v=F9wPN-2RTrc&amp;t=96s){: target="_blank"}
+
 Read quick **Five Ws** information to plan wisely.
 
 #### What is flower carpet?
@@ -36,7 +38,7 @@ The very first Flower Carpet was created in 1971 in Brussels. And it has been ru
 
 #### When is the next?
 
-We saw the Flower Carpet in 2018, so next will happen in every 2 years. Do not think much and head to Brussels in August. For future dates, check the official [website](https://www.brussels.be/flower-carpet){: target="_blank"}.
+We saw the Flower Carpet in 2018, so next will happen in 2020 as it repeats in every 2 year. Do not think much and head to Brussels in August. For future dates, check the official [website](https://www.brussels.be/flower-carpet){: target="_blank"}.
 
 #### Where Can You See?
 
@@ -54,7 +56,7 @@ We took the opportunity in year 2018 and visited from 16 to 18 August and witnes
 
 The carpet was approximate 100m and composed by about 120 volunteers, with nearly 1 million begonias in less than 4 hours. The 2018 theme of the flower carpet was Mexico. The Flower Carpet is dedicated to Guanajuato, a Mexican region with a particularly rich floral culture and tradition.
 
-[**Watch the full light show and fireworks**](https://www.youtube.com/watch?v=F9wPN-2RTrc&amp;t=96s){: target="_blank"}
+&nbsp;
 
 &nbsp;
 
