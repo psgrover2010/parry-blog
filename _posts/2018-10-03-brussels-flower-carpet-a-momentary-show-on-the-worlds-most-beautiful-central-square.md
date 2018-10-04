@@ -32,7 +32,7 @@ In every 2 years in August the Grand Place in Brussels is always covered with a 
 
 #### When did this happen first?
 
-The very first Flower Carpet was created in 1971 in Brussels. And it has been running non-stop every two years since 1986. A non-profit association assembles a committee of professionals who come up with the design and plan. 
+The very first Flower Carpet was created in 1971 in Brussels. And it has been running non-stop every two years since 1986. A non-profit association assembles a committee of professionals who come up with the design and plan.&nbsp;
 
 ![](/Images/20180816_225830-01.jpeg)
 
