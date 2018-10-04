@@ -1,7 +1,7 @@
 ---
 layout: post
 current: post
-cover: uploads/IMG_20180613_130011_234-01.jpeg
+cover: uploads/20180817_210120-01 (1).jpeg
 navigation: true
 title: >-
   Brussels Flower Carpet: A momentary show on the world’s most beautiful central
@@ -32,7 +32,7 @@ In every 2 years in August the Grand Place in Brussels is always covered with a 
 
 The very first Flower Carpet was created in 1971 in Brussels. And it has been running non-stop every two years since 1986. A non-profit association assembles a committee of professionals who come up with the design and plan.&nbsp;
 
-&nbsp;
+![](/Images/20180816_225830-01.jpeg)
 
 #### When is the next?
 
@@ -41,6 +41,8 @@ We saw the Flower Carpet in 2018, so next will happen in every 2 years. Do not t
 #### Where Can You See?
 
 The Flower Carpet is located in the gorgeous Grand Place, in the heart of Brussels. If you head across to Town Hall (called “Hotel De Ville” – It’s not a hotel) and walk up to the balcony you can get a great birds eye view of the flowers.
+
+![](/Images/20180817_210120-01 &#40;1&#41;.jpeg)
 
 #### Where else might you see in Europe?
 
