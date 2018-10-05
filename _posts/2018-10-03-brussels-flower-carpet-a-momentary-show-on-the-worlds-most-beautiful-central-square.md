@@ -9,6 +9,7 @@ title: >-
 date: 2018-10-03 00:00:00
 tags:
   - Europe
+  - Photo Story
 class: post-template
 subclass: post tag-getting-started
 author: parry
