@@ -39,7 +39,7 @@ The very first Flower Carpet was created in 1971 in Brussels. And it has been ru
 
 #### When is the next?
 
-We saw the Flower Carpet in 2018, so next will happen in 2020 and it repeats in every 2 year. Do not think much and head to Brussels in August. For future dates, check the official website.
+We saw the Flower Carpet in 2018, so next will happen in 2020 and it repeats in every 2 year. Do not think much and head to Brussels in August. For future dates, check the official [website](http://www.flowercarpet.brussels/en){: target="_blank"}.
 
 #### **Where Can You See?**
 
