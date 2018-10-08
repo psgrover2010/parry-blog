@@ -1,7 +1,7 @@
 ---
 layout: post
 current: post
-cover: uploads/ DSC_0329-01.jpeg
+cover: uploads/DSC_0329-01.jpeg
 navigation: true
 title: >-
   Brussels Flower Carpet: A momentary show on the world’s most beautiful central
