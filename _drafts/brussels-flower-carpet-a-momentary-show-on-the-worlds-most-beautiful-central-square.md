@@ -8,8 +8,7 @@ title: >-
   square!
 date: 2018-09-18 00:00:00
 tags:
-  - Austria
-  - Photo Story
+  - Europe
 class: post-template
 subclass: post tag-getting-started
 author: parry
@@ -39,7 +38,7 @@ The very first Flower Carpet was created in 1971 in Brussels. And it has been ru
 
 #### When is the next?
 
-We saw the Flower Carpet in 2018, so next will happen in 2020 and it repeats in every 2 year. Do not think much and head to Brussels in August. For future dates, check the official website.
+We saw the Flower Carpet in 2018, so next will happen in 2020 and it repeats in every 2 year. Do not think much and head to Brussels in August. For future dates, check the official [website](https://www.brussels.be/flower-carpet){: target="_blank"}.
 
 ![](/uploads/20180817_210120-01.jpeg)
 
@@ -57,17 +56,19 @@ We took the opportunity in year 2018 and visited from 16 to 18 August and witnes
 
 The carpet was approximate 100m and composed by about 120 volunteers, with nearly 1 million begonias in less than 4 hours. The 2018 theme of the flower carpet was Mexico. The Flower Carpet is dedicated to Guanajuato, a Mexican region with a particularly rich floral culture and tradition.&nbsp;
 
-Ohhh! Yes Waffles, Time to feed yourself.
+Ohhh! Yes Waffles,&nbsp; Next thing which you must not miss is **WAFFLES**!
 
-One big thing in Brussels is waffles. In Belgium, waffles are served as street food, you can find waffles usually wrapped in a piece of paper which can be eaten with your hands.
+One big thing in Brussels is waffles. In Belgium, waffles are served as street food, you can find waffles usually wrapped in a piece of paper which can be eaten on the go.
 
-The real highlight of the waffle is it’s topping though there are plenty of toppings to go around as powdered sugar, fruit, whipped cream, and chocolate are what you'll find on real Belgian waffles. But a waffle with no toppings is just as good.
+The real highlight of the waffle is it’s topping though there are plenty of toppings to go around as powdered sugar, fruit, whipped cream, and chocolate are what you'll find on real Belgian waffles. But a waffle with no toppings is also amazing as it's real one.
 
 It will be prepared in front of you and will be served immediately. All country has their own version of Waffles however Belgium Waffles are the best!
 
+It was a memorable journey to Brussels.
+
 ![](/uploads/20180816_194910-01.jpeg)
 
-It was a memorable journey to Brussels.&nbsp;
+All photos, videos and opinions in this article are my own, as always.
 
 &nbsp;
 
