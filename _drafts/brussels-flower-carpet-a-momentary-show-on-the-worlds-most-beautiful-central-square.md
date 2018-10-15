@@ -6,7 +6,7 @@ navigation: true
 title: >-
   Brussels Flower Carpet: A momentary show on the world’s most beautiful central
   square!
-date: 2018-09-18 00:00:00
+date: 2018-10-15 10:00:00
 tags:
   - Europe
 class: post-template
@@ -22,7 +22,7 @@ In few hours with more than hundred volunteers this can be made quickly for visi
 
 [**Watch the full light show and fireworks**](https://www.youtube.com/watch?v=F9wPN-2RTrc&amp;t=76s){: target="_blank"}
 
-Read quick&nbsp;**Five Ws**&nbsp;information to plan wisely.
+Read quick **Five Ws** information to plan wisely.
 
 #### What is flower carpet?
 
@@ -32,7 +32,7 @@ In every 2 years in August the Grand Place in Brussels is always covered with a 
 
 #### When did this happen first?
 
-The very first Flower Carpet was created in 1971 in Brussels. And it has been running non-stop every two years since 1986. A non-profit association assembles a committee of professionals who come up with the design and plan.&nbsp;
+The very first Flower Carpet was created in 1971 in Brussels. And it has been running non-stop every two years since 1986. A non-profit association assembles a committee of professionals who come up with the design and plan. 
 
 ![](/uploads/20180816_225830-01.jpeg)
 
@@ -54,9 +54,9 @@ I am sure this happen nowhere else in Europe. Prove me wrong with the details an
 
 We took the opportunity in year 2018 and visited from 16 to 18 August and witnessed the amazing Flower carpet at the Grand-Place in Brussels, Belgium.
 
-The carpet was approximate 100m and composed by about 120 volunteers, with nearly 1 million begonias in less than 4 hours. The 2018 theme of the flower carpet was Mexico. The Flower Carpet is dedicated to Guanajuato, a Mexican region with a particularly rich floral culture and tradition.&nbsp;
+The carpet was approximate 100m and composed by about 120 volunteers, with nearly 1 million begonias in less than 4 hours. The 2018 theme of the flower carpet was Mexico. The Flower Carpet is dedicated to Guanajuato, a Mexican region with a particularly rich floral culture and tradition. 
 
-Ohhh! Yes Waffles,&nbsp; Next thing which you must not miss is **WAFFLES**!
+Ohhh! Yes Waffles,  Next thing which you must not miss is **WAFFLES**!
 
 One big thing in Brussels is waffles. In Belgium, waffles are served as street food, you can find waffles usually wrapped in a piece of paper which can be eaten on the go.
 
@@ -69,7 +69,3 @@ It was a memorable journey to Brussels.
 ![](/uploads/20180816_194910-01.jpeg)
 
 All photos, videos and opinions in this article are my own, as always.
-
-&nbsp;
-
-&nbsp;
