@@ -1,7 +1,7 @@
 ---
 layout: post
 current: post
-cover: uploads/End of the day.jpg
+cover: uploads/Vienna + Praha.jpg
 navigation: true
 title: 'Vienna (Wien) VS Prague (Praha): Which one to visit?'
 date: 2018-10-30 10:00:00
