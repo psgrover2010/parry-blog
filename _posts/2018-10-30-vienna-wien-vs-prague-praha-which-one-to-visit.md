@@ -1,7 +1,7 @@
 ---
 layout: post
 current: post
-cover: uploads/End of the day .jpg
+cover: uploads/End of the day.jpg
 navigation: true
 title: 'Vienna (Wien) VS Prague (Praha): Which one to visit?'
 date: 2018-10-30 10:00:00
@@ -33,25 +33,21 @@ Prague city isn’t as spread out as Vienna and is easier to travel around in. O
 
 #### Things to do in both cities:
 
- 
-
 ##### Sightseeing–
 
-In my view, Vienna is amazing to live & visit as you can reach any corner of the city with public transport in few minutes even if the city is spread out however Prague is also beautiful as a city. It has a better location on the river, very dramatic views, loads of sights to see.<br> 
+In my view, Vienna is amazing to live & visit as you can reach any corner of the city with public transport in few minutes even if the city is spread out however Prague is also beautiful as a city. It has a better location on the river, very dramatic views, loads of sights to see.<br>&nbsp;
 
 ![Vienna Sightseen-Schönbrunn](/uploads/20180707_160013.jpg)
 
 ![](/uploads/Praha sightseen-01.jpeg)
 
-While both cities are rich in sightseeing adventures, Prague is considered by many travel experts to be more scenic. In Vienna, people can stroll along the Danube River. Vienna city is rich in history with modern architect touch, city is a home to such great sites such as The Hofburg, Schönbrunn Palace and Gardens, and St. Stephen’s Cathedral.
+While both cities are rich in sightseeing adventures, Prague is considered by many travel experts to be more scenic. In Vienna, people can stroll along the Danube River. Vienna city is rich in history with modern architect touch, city is a home to such great sites such as The Hofburg, Sch&ouml;nbrunn Palace and Gardens, and St. Stephen’s Cathedral.
 
-Prague is definitely beautiful as a city. You can stroll along the same Danube River for breath-taking views, sit in one of the many cafés with the view of landscape, and breath in the amazing architecture – both old and modern.
+Prague is definitely beautiful as a city. You can stroll along the same Danube River for breath-taking views, sit in one of the many caf&eacute;s with the view of landscape, and breath in the amazing architecture – both old and modern.
 
 ![Praha](/uploads/Praha%20sightseen%202%20-01.jpeg)
 
 ##### ![Vienna](/uploads/Vienna sightseen2.jpg)
-
- 
 
 ##### Shopping–
 
@@ -59,13 +55,11 @@ Definitely Vienna - the main shopping area is a lot bigger than Prague's. I am s
 
 ##### Food–
 
-When it comes to great dining, both cities are equally enticing. Austrians are known for their love of sweets and pastries, which is reflected in the many bakeries, cafés, and restaurants scattered around Vienna. Some restaurants in either city offer local cuisine, though you’re more likely to be eating a combination of Western European. On the other hand, Prague (being that it is in Central Europe) will be far less pricey than Vienna.
+When it comes to great dining, both cities are equally enticing. Austrians are known for their love of sweets and pastries, which is reflected in the many bakeries, caf&eacute;s, and restaurants scattered around Vienna. Some restaurants in either city offer local cuisine, though you’re more likely to be eating a combination of Western European. On the other hand, Prague (being that it is in Central Europe) will be far less pricey than Vienna.
 
 ![Praha](/uploads/Food%20Praha.JPG)
 
 ##### ![Vienna](/uploads/Vienna food.jpg)
-
-#####  
 
 ##### Culture–
 
