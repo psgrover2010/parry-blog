@@ -4,7 +4,7 @@ current: post
 cover: uploads/End of the day .jpg
 navigation: true
 title: 'Vienna (Wien) VS Prague (Praha): Which one to visit?'
-date: 2018-10-15 10:00:00
+date: 2018-10-30 10:00:00
 tags:
   - Europe
   - Austria
@@ -37,7 +37,7 @@ Prague city isn’t as spread out as Vienna and is easier to travel around in. O
 
 ##### Sightseeing–
 
-In my view, Vienna is amazing to live and you can reach any corner of the city with public transport in few minutes even if the city is spread out however Prague is also beautiful as a city. It has a better location on the river, very dramatic views, loads of sights to see.<br>&nbsp;
+In my view, Vienna is amazing to live & visit as you can reach any corner of the city with public transport in few minutes even if the city is spread out however Prague is also beautiful as a city. It has a better location on the river, very dramatic views, loads of sights to see.<br>&nbsp;
 
 ![Vienna Sightseen-Schönbrunn](/uploads/20180707_160013.jpg)
 
