@@ -94,7 +94,7 @@ into the {body} of the default.hbs template -->
             <div id="disqus_thread"></div>
             <script>
                 var disqus_config = function () {
-                    this.page.url = '{{ site.url }}{{ site.baseurl }}';
+                    this.page.url = '{{ post.url }}';
                     this.page.identifier = '{{ site.title }}';
                     console.log(disqus_config);
                 };
