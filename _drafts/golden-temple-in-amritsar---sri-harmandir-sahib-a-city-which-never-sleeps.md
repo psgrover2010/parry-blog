@@ -4,18 +4,31 @@ current: post
 cover: uploads/DSC_0007_1-01 (1).jpeg
 navigation: true
 title: Golden Temple in AMRITSAR _ Sri Harmandir Sahib (A city which never sleeps)
-date: 2018-07-07 00:00:00
+date: 2019-01-13 00:00:00
 tags:
-  - Europe
-  - Austria
+  - ASIA
 class: post-template
 subclass: post tag-getting-started
 author: parry
 ---
 
-Amritsar is the largest city in Punjab and well-known as the home to the holiest shrine of Sikhism — Sri Harmandir Sahib, also known as the Darbar Sahib or Golden Temple. This place is one of the most revered places of worship for Sikhs all over the world. Amritsar isn’t just about sacred sites (although there are many to explore). The holy city is also a must-stop street food destination, and home to plenty of museums, forts, and bustling bazaars and markets.
+Amritsar is the largest city in Punjab and well-known as the home to the holiest shrine of Sikhism — Sri Harmandir Sahib, also known as the Darbar Sahib or Golden Temple, (on account of its scenic beauty and golden coating for English speaking world), is named after Hari (God) the temple of God. This place is one of the most revered places of worship for Sikhs all over the world. Amritsar isn’t just about sacred sites (although there are many to explore). The holy city is also a must-stop street food destination, and home to plenty of museums, forts, and bustling bazaars and markets.
 
-Amritsar is a big town with a population of about one million. Darbar Sahib is a Gurdwara (Sikh Temple) located in the city of Amritsar, Punjab, India. This has been built in the 1600s, it houses a copy of the Sri Guru Granth Sahib, the holy text of Sikhism, which is read out loud by a Granthi (reader) for visiting pilgrims to listen to.
+###### Short History
+
+Guru Arjan Sahib, the Fifth Sikh Guru, conceived the idea of creating a central place of worship for the Sikhs and he himself designed the architecture of Sri Harmandir Sahib. Earlier the planning to excavate the holy tank (Amritsar or Amrit Sarovar) was chalked out by Guru Amardas Sahib, the Third Sikh Guru, but it was executed by Guru Ramdas Sahib under the supervision of Baba Budha ji. The land for the site was acquired by the earlier Guru Sahibs on payment or free of cost from the Zamindars (landlords) of native villages. The plan to establish a town settlement was also made. Therefore, the construction work on the Sarovar (the tank) and the town started simultaneously in 1570. The work on both projects completed in 1577 A.D. The building work completed in 1601 A.D. on Bhadoon Sudi 1st, 1661 Bikrmi Samvat (August/September,1604). Guru Arjan Sahib installed newly created Guru Granth Sahib, in Sri Harmandir Sahib and appointed Baba Budha ji as its first Granthi i.e. the reader of Guru Granth Sahib
+
+Now, Amritsar is a big town with a population of about one million. Darbar Sahib is a Gurdwara (Sikh Temple) located in the city of Amritsar, Punjab, India. It has a copy of the Sri Guru Granth Sahib, the holy text of Sikhism, which is read out loud by a Granthi (reader) for visiting pilgrims to listen to.
+
+###### Structure
+
+The main structure of Sri Harmandir Sahib, functionally as well as technically is a three-storied one. The front, which faces the bridge, is decorated with repeated cusped arches and the roof of the first floor is at the height of the 26 feet and 9 inches.
+
+At the top of the first floor 4 feet high parapet rises on all the sides which has also four ‘Mamtees’ on the four corners and exactly on the top of the central hall of the main sanctuary rises the third story. It is a small square room and have three gates. A regular recitation of Guru Granth Sahib is also held there.
+
+On the top of this room stands the low fluted ‘Gumbaz’ (dome) having lotus petal motif in relief at the base inverted lotus at the top which supports the "Kalash" having a beautiful "Chhatri" at the end.
+
+Its architecture represents a unique harmony between the Muslims and the Hindus way of construction work and this is considered the best architectural specimens of the world. It is often quoted that this architecture has created an independent Sikh school of architecture in the history of art in India.
 
 This Sikh temple is intended to be a place of worship not only for the Sikhs but for people from all religions all over the world. The four entrances to the Golden Temple symbolize the acceptance of the Sikhs towards all people and their religion. It is estimated that more than 100,000 people visit this temple on a daily basis. The main temple is built on a 67 ft. platform in the centre of water tank (also known as the Sarovar). It is connected by a bridge which is 202 ft long and 21 ft wide.&nbsp;
 
