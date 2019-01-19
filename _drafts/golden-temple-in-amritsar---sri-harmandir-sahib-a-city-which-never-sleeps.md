@@ -1,7 +1,7 @@
 ---
 layout: post
 current: post
-cover: uploads/DSC_0007_1-01 (1).jpeg
+cover: uploads/dsc_0742-01.jpeg
 navigation: true
 title: Golden Temple in AMRITSAR _ Sri Harmandir Sahib (A city which never sleeps)
 date: 2019-01-13 00:00:00
