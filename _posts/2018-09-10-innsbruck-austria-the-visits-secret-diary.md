@@ -93,11 +93,7 @@ My favourite Nordkette Mountain [[website](https://www.innsbruck.info/en/innsbru
 
 ![](/uploads/20180619-235538.jpg)
 
-###### &lt;iframe width="560" height="315" src="https://www.youtube.com/embed/vUm58n4YdP0" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen&gt;&lt;/iframe&gt;
-
-&nbsp;
-
-#### Amaze yourself at crystal world, Swarovski in Wattens
+###### Amaze yourself at crystal world, Swarovski in Wattens
 
 We started our 2nd and last day to explore crystal world before finishing our weekend in Innsbruck. When you get a chance to see how crystal can be made then why not so we went to this place with this wrong idea because I thought we were going to get a factory tour or to see how the Swarovski crystals were made.
 
