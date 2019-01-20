@@ -20,9 +20,9 @@ Every year, the Grand-Place in Brussels, Belgium celebrates anniversary as a UNE
 
 In few hours with more than hundred volunteers this can be made quickly for visitors to have a splendid view of this ephemeral masterpiece. The view from ground level is a site to see, the above ground view is to die for. If you won’t get the tickets for Panorama view then do not be gloomy as the lighting is amazing and the ground level view of the buildings within the Grand Place is equally impressive.
 
-[**Watch the full light show and fireworks**](https://www.youtube.com/watch?v=F9wPN-2RTrc&amp;t=76s){: target="_blank"}
+&lt;iframe width="560" height="315" src="https://www.youtube.com/embed/F9wPN-2RTrc" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen&gt;&lt;/iframe&gt;
 
-Read quick **Five Ws** information to plan wisely.
+Read quick&nbsp;**Five Ws**&nbsp;information to plan wisely.
 
 #### What is flower carpet?
 
@@ -32,7 +32,7 @@ In every 2 years in August the Grand Place in Brussels is always covered with a 
 
 #### When did this happen first?
 
-The very first Flower Carpet was created in 1971 in Brussels. And it has been running non-stop every two years since 1986. A non-profit association assembles a committee of professionals who come up with the design and plan. 
+The very first Flower Carpet was created in 1971 in Brussels. And it has been running non-stop every two years since 1986. A non-profit association assembles a committee of professionals who come up with the design and plan.&nbsp;
 
 ![](/uploads/20180816_225830-01.jpeg)
 
@@ -54,9 +54,9 @@ I am sure this happen nowhere else in Europe. Prove me wrong with the details an
 
 We took the opportunity in year 2018 and visited from 16 to 18 August and witnessed the amazing Flower carpet at the Grand-Place in Brussels, Belgium.
 
-The carpet was approximate 100m and composed by about 120 volunteers, with nearly 1 million begonias in less than 4 hours. The 2018 theme of the flower carpet was Mexico. The Flower Carpet is dedicated to Guanajuato, a Mexican region with a particularly rich floral culture and tradition. 
+The carpet was approximate 100m and composed by about 120 volunteers, with nearly 1 million begonias in less than 4 hours. The 2018 theme of the flower carpet was Mexico. The Flower Carpet is dedicated to Guanajuato, a Mexican region with a particularly rich floral culture and tradition.&nbsp;
 
-Ohhh! Yes Waffles,  Next thing which you must not miss is **WAFFLES**!
+Ohhh! Yes Waffles,&nbsp; Next thing which you must not miss is **WAFFLES**!
 
 One big thing in Brussels is waffles. In Belgium, waffles are served as street food, you can find waffles usually wrapped in a piece of paper which can be eaten on the go.
 
