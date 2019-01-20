@@ -1,7 +1,7 @@
 ---
 layout: post
 current: post
-cover: uploads/dsc_0742-01.jpeg
+cover: uploads/dsc-0742-1.jpeg
 navigation: true
 title: Golden Temple in AMRITSAR _ Sri Harmandir Sahib (A city which never sleeps)
 date: 2019-01-13 00:00:00
@@ -30,7 +30,7 @@ The main structure of Sri Harmandir Sahib, functionally as well as technically i
 
 ![](/uploads/dsc-0729-1.jpeg)
 
-This Sikh temple is intended to be a place of worship not only for the Sikhs but for people from all religions all over the world. The four entrances to the Golden Temple symbolize the acceptance of the Sikhs towards all people and their religion. It is estimated that more than 100,000 people visit this temple on a daily basis. The main temple is built on a 67 ft. platform in the centre of water tank (also known as the Sarovar). It is connected by a bridge which is 202 ft long and 21 ft wide.&nbsp;
+This Sikh temple is intended to be a place of worship not only for the Sikhs but for people from all religions all over the world. The four entrances to the Golden Temple symbolize the acceptance of the Sikhs towards all people and their religion. It is estimated that more than 100,000 people visit this temple on a daily basis. The main temple is built on a 67 ft. platform in the centre of water tank (also known as the Sarovar). It is connected by a bridge which is 202 ft long and 21 ft wide. 
 
 ![](/uploads/dsc-0742-1.jpeg)
 
@@ -64,7 +64,7 @@ Haveli is recently opened restaurant on Amritsar highway and just a watchable pl
 
 ##### Heritage Walk
 
-The bustling streets surrounding the temple are a delight to walk through. &nbsp;Not only you get to learn about this city’s fascinating history, you also get to experience its sights and sounds. As the sun sets, the entire place is bathed in beautiful yellow lights. You are in awe of its beauty and feel mesmerized.
+The bustling streets surrounding the temple are a delight to walk through.  Not only you get to learn about this city’s fascinating history, you also get to experience its sights and sounds. As the sun sets, the entire place is bathed in beautiful yellow lights. You are in awe of its beauty and feel mesmerized.
 
 ![](/uploads/dsc-0108-1.jpeg)
 
@@ -74,15 +74,15 @@ You may wander through busy bazaars selling a mix of Fulkari textiles, colourful
 
 ##### ![](/uploads/20181203-204649-1.jpeg)
 
-##### &nbsp;
+#####  
 
 ##### Wagah Border
 
-The only road border crossing between India and Pakistan, Wagah, lies between Amritsar in India and Lahore in Pakistan. You can either rent a cab or take a Hop on Hop off Bus to Wagah Border, about 17 miles from Amritsar in order to witness Indian Border Retreat Ceremony. The rich heritage tour of the Hop on Hop off Bus that takes you to Wagah border starts from Golden Temple and other locations. It’s thrilling to watch the ceremonial closing of the gates and the lowering of the flags of India and Pakistan.&nbsp;
+The only road border crossing between India and Pakistan, Wagah, lies between Amritsar in India and Lahore in Pakistan. You can either rent a cab or take a Hop on Hop off Bus to Wagah Border, about 17 miles from Amritsar in order to witness Indian Border Retreat Ceremony. The rich heritage tour of the Hop on Hop off Bus that takes you to Wagah border starts from Golden Temple and other locations. It’s thrilling to watch the ceremonial closing of the gates and the lowering of the flags of India and Pakistan. 
 
 ##### Jallianwala Bagh
 
-Just a few minutes’ walk from Harmandir Sahib is Jallianwala Bagh, the place of great historical significance. It is the site of the 1919 massacre of Indian citizens by British. There are well-manicured gardens blooming with colour with pathways making a perfect spot for walkers. It has a light and sound show too.&nbsp;
+Just a few minutes’ walk from Harmandir Sahib is Jallianwala Bagh, the place of great historical significance. It is the site of the 1919 massacre of Indian citizens by British. There are well-manicured gardens blooming with colour with pathways making a perfect spot for walkers. It has a light and sound show too. 
 
 ##### Admire the Maharaja Ranjit Singh Statue
 
@@ -92,13 +92,13 @@ This is very imprecise as it depicts the grand image of warriors of Punjab in re
 
 ##### Amritsari Kulchas
 
-No matter where you go in India, you’re likely to find some pretty amazing food, but each state and even city or town have their own delicacies. In the case of Amritsar, one of the delicious things they’re famous for are their kulchas (butter-soaked bread baked in a tandoor and often stuffed with potatoes). Try one out.&nbsp;
+No matter where you go in India, you’re likely to find some pretty amazing food, but each state and even city or town have their own delicacies. In the case of Amritsar, one of the delicious things they’re famous for are their kulchas (butter-soaked bread baked in a tandoor and often stuffed with potatoes). Try one out. 
 
-Take a first left after passing Shanidev Mandir and the best Kulchas will be available on your left. You will see many people there who will be waiting for their turn to come, sit down and try they delicious food.&nbsp;
+Take a first left after passing Shanidev Mandir and the best Kulchas will be available on your left. You will see many people there who will be waiting for their turn to come, sit down and try they delicious food. 
 
-###### Do not forgot to take Amritsary Papad, Vadiyaa and Aam Papad to home.&nbsp;
+###### Do not forgot to take Amritsary Papad, Vadiyaa and Aam Papad to home. 
 
-&nbsp;
+ 
 
 #### Things to remember when visiting the Golden Temple Amritsar;
 
@@ -110,7 +110,3 @@ Take a first left after passing Shanidev Mandir and the best Kulchas will be ava
 * Be respectful; it’s a wonderful place to see and observe but remember it is also a place of great significance for those visiting so try not to stare or take photos of people who do not wish to be photographed.
 
 ![](/uploads/dsc-0157-2.jpeg)
-
-&nbsp;
-
-&nbsp;
