@@ -1,7 +1,7 @@
 ---
 layout: post
 current: post
-cover: Images/41.jpg
+cover: Upload/41.jpg
 navigation: true
 title: >-
   Love Connection- The Moon and Stars tried thier best, But I couldn't  look
