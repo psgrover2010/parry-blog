@@ -1,7 +1,7 @@
 ---
 layout: post
 current: post
-cover: Upload/41.jpg
+cover: Uploads/41.jpg
 navigation: true
 title: >-
   Love Connection- The Moon and Stars tried thier best, But I couldn't  look
@@ -23,7 +23,7 @@ In my opinion a soulmate is that one person with whom you develop immediate conn
 
 I believe this connection develops every day and with over time you experience love and understanding which developed between you two which are eventually are so deep, strong and complex that no power could separate it or even try to chaos with it. You promised each other to stay with each other in each and every ups and downs of life. You grow up together, experience every hell and heaven together. You travel together, stay with each other till eternity and love each other to the moon and back.
 
-![](/Images/_Final.jpg)![](/Images/_Final.jpg)
+![](/Images/_Final.jpg)![](/Images/_Final.jpg)![](/uploads/_Final.jpg)
 
 We try to capture our every travel & enjoyable moment for our memories and one of this is this photo. If you want this type of Nostalgia Photo of 1900’s then visit nostalgia photo-shop to feel like a fine lady Elisabeth and gentleman role Austrian Josef. I am sure this experience will be unique for you as well and remember this is more than just a picture.
 
