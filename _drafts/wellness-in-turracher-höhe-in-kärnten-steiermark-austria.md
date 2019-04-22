@@ -1,10 +1,10 @@
 ---
 layout: post
 current: post
-cover: uploads/DSC_0329-01.jpeg
+cover: uploads/Hotel5.jpeg
 navigation: true
 title: 'Wellness in Turracher Höhe in Kärnten Steiermark, Austria'
-date: 2018-10-15 10:00:00
+date: 2019-04-21 10:00:00
 tags:
   - Europe
   - Austria
