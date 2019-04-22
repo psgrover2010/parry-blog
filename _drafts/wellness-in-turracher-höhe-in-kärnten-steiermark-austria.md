@@ -13,13 +13,13 @@ subclass: post tag-getting-started
 author: parry
 ---
 
-It was the second journey to Hotel Hochschober on the Turracher H&ouml;he, Austria. This place is a complete package of everything- wellness, relax, spa, swimming in open lake which is possible in winter too & importantly food is really amzing.
+It was the second journey to Hotel Hochschober in the Turracher H&ouml;he, Austria. This place is a complete package of everything- wellness, relax, spa, swimming in open lake which is also possible in winter & importantly food is really amzing.
 
 ![](/uploads/Hotel1.jpeg)
 
 ![](/uploads/Hotel2.jpeg)
 
-I am sure while reading this you will be exhilarated and want to visit once. I have experienced the summer however surely winter will have completely different beauty as in winter you will be able to walk on the frozen Lake, can enjoy ski, skate and every morning will be like the most beautiful with fresh snow.
+I am sure while reading this, you will be exhilarated and want to visit once. I have experienced the summer however surely winter will have completely different beauty as in winter you will be able to walk on the frozen Lake, can enjoy ski, skate and every morning will be like the most beautiful with fresh snow.
 
 ![](/uploads/Hotel3.jpeg)
 
@@ -35,7 +35,7 @@ I am sure you will never feel hungry in the hotel as you could eat in Hochschobe
 
 Of course, pictures speak itself.
 
-For those of you who like to enjoy a breath-taking view from the mountain, the Turracher H&ouml;he has a lot to offer. I went to have a look about 500 meters altitude from Hotel Hochschober and were rewarded with a beautiful backdrop.
+For those of you, who like to enjoy a breath-taking view from the mountain, the Turracher H&ouml;he has a lot to offer. I went to have a look about 500 meters altitude from Hotel Hochschober and were rewarded with a beautiful backdrop.
 
 ![](/uploads/Hotel5.jpeg)
 
