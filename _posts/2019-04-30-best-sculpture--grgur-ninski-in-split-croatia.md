@@ -39,14 +39,5 @@ In case there is no space left for your luggage there you can also use the lugga
 
 I would recommend to visit the place as surrounding are very scenic & beautiful.
 
-![](/uploads/Split 9.jpeg){: width="6000" height="4000"}
-
-![Night view](/uploads/Split 8.jpeg){: width="6000" height="4000"}
-
-![](/uploads/Split 5.jpeg){: width="1080" height="1080"}
-
 ![](/uploads/Split 10.jpeg){: width="6000" height="4000"}
-
-![](/uploads/Split 7.jpeg){: width="6000" height="4000"}
-
 Best of luck\!
