@@ -1,7 +1,7 @@
 ---
 layout: post
 current: post
-cover: uploads/Split 1.jpeg
+cover: uploads/00001.jpeg
 navigation: true
 title: 'Best Sculpture – Grgur Ninski in Split, Croatia'
 date: 2019-04-30 10:00:00
@@ -19,7 +19,7 @@ I was wondering around Diocletian Palace and found a huge sculptor which is call
 
 This is one of the best & huge sculptors in the town, you will easily find this nearer the town and around the Diocletian Palace. This is next to the Golden Gate however this statue was initially stationed on Diocletian Palace’s peristyle.
 
-![](/uploads/Split 1.jpeg){: width="651" height="851"}
+![](/uploads/00001.jpeg){: width="651" height="851"}
 
 During WWII, Italian occupying forces removed the statue, recognizing its meaning to the population. When Split came back under Croatian control, statue returned & now its outside the Palace’s northern entrance, entitled “Golden Gate”. I personally feel that this statue is quite impressive & monumental, especially if you take a closer look, you will also notice that statute thumb on one of his feet shines with a unique color. You will also find visitors are rubbing the toe and making a wish which will gradually make that wish happen.
 
@@ -35,5 +35,4 @@ By following the tips, you can improve your experience at Plitvice Lakes and avo
 
 Remember luggage storage in Split can be found inside the bus station building. Working hours during the summer season are from 06:00 till 22:00 and during the rest of the year from 07:00 till 21:00; the price is approximately 5 kuna for the first hour and 1.50 kuna for every next hour.
 
-In case there is no space left for your luggage there you can also use the luggage storage of the railway station which is next to the bus station (working hours are from 06:00 till 22:00, the price is 15 kuna for 24 hours).
-Happy Visit!
+In case there is no space left for your luggage there you can also use the luggage storage of the railway station which is next to the bus station (working hours are from 06:00 till 22:00, the price is 15 kuna for 24 hours). Happy Visit\!
