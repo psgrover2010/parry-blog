@@ -35,9 +35,4 @@ By following the tips, you can improve your experience at Plitvice Lakes and avo
 
 Remember luggage storage in Split can be found inside the bus station building. Working hours during the summer season are from 06:00 till 22:00 and during the rest of the year from 07:00 till 21:00; the price is approximately 5 kuna for the first hour and 1.50 kuna for every next hour.
 
-In case there is no space left for your luggage there you can also use the luggage storage of the railway station which is next to the bus station (working hours are from 06:00 till 22:00, the price is 15 kuna for 24 hours).
-
-I would recommend to visit the place as surrounding are very scenic & beautiful.
-
-![](/uploads/Split 10.jpeg){: width="6000" height="4000"}
-Best of luck\!
+In case there is no space left for your luggage there you can also use the luggage storage of the railway station which is next to the bus station (working hours are from 06:00 till 22:00, the price is 15 kuna for 24 hours)
