@@ -3,7 +3,7 @@ layout: post
 current: post
 cover: uploads/0001.jpg
 navigation: true
-title: Why you should visit Linz in Austria
+title: LINZ- A Fantastic Trip With Minimal Spending? Here's How.
 date: 2019-08-06 10:00:00
 tags:
   - Europe
@@ -13,25 +13,23 @@ subclass: post tag-getting-started
 author: parry
 ---
 
-If you are a traveller and heading towards Austria then you should Visit LINZ as i am sure you don't want to miss interesting sights and great tourist destination to explore with special ride on a train which is the steepest adhesion railway in Europe which creates a harmonious combination of nostalgia and modernity through its design.
+If you are a travelling to Austria then you should Visit LINZ as i am sure you don't want to miss interesting sights and great tourist destination to explore with special ride on a train which is the steepest adhesion railway in Europe.&nbsp;
 
-&nbsp;
+Yes, I am talking about the Pöstlingbergbahn which reaches to small hill Pöstlingberg- almost a mountain and located in the northern part of Linz. This is how it looks like.&nbsp;
 
-Yes, I am talking about the Pöstlingbergbahn which reaches to small hill Pöstlingberg- almost a mountain and located in the northern part of Linz.
+The day I come to know about Pöstlingberg, I had decided to explore it in my next visit to Linz. It's a small and beautiful city which is located in northern part of Austria. This city is not famous like Salzburg, Innsbruck or Vienna which often get all attention from tourist however this is the third largest city in Austria. &nbsp;
 
-The day I come to know about Pöstlingberg, I had decided to explore it in my next visit to Linz.
+This city has many historical buildings, great architecture and modern innovations to offer as other high-ranking Austrian cities.
 
-LINZ is a small and beautiful city which is located in northern part of Austria. This city is not famous like Salzburg, Innsbruck and Vienna which often get all attention from tourist however this is the third largest city in Austria. &nbsp;City has many historical buildings, great architecture and modern innovations to offer as other high-ranking Austrian cities.
+Finally, I had a chance to visit Linz and then it was the time to explore old and stylish tram with WOW view. This ride comes with lots of fun with scenery and many things to do at the top of the Pöstlingberg so overall this is well worth the journey. It took me only 20 minutes to climbs Linz & reaches high in mountain. This journey starts from centre of Linz, Hauptplatz and on its way it passes the Anton Bruckner University and the Zoo.
 
-Since 2014 Linz has been part of the UNESCO Creative Cities network. Finally, I had a chance to visit Linz and then it was the time to explore old and stylish tram with WOW view. This ride comes with lots of fun with scenery and many things to do at the top of the Pöstlingberg so overall this is well worth the journey. It took me only 20 minutes to climbs Linz & reaches high in mountain. This Starts from centre of Linz, starting from Hauptplatz and on its way it passes the Anton Bruckner University and the Zoo.
-
-**Tipp:**&nbsp;Try free of charge audio guide called ‘’Hearonymus-App’’. Total 29 chapter awaits you: 7 chapter along the mountain route, 3 chapter at Top and 19 chapter inside the Grottenbahn.
+**Tipp:**&nbsp;Try free audio guide called ‘’Hearonymus-App’’. Total 29 chapter awaits you: 7 chapter along the mountain route, 3 chapter at Top and 19 chapter inside the Grottenbahn.
 
 **Pöstlingberg Caf&eacute; Lounge:**
 
 The pastry shop Jindrak in Linz took over the restaurant Pöstlingberg Caf&eacute; Lounge. The name of the caf&eacute; has remained the same, and all of the additional confectionery Jindrak has been added.
 
-**Have a good time\!**
+**Have a wonderful time\!**
 
 This special Bahn departs in every 30 minutes intervals. In winter it runs daily till 08.30 pm. (= last slide) and in summer until 10:30pm.
 
@@ -70,6 +68,8 @@ There are many different boat tour options in Linz from short to half an hour tr
 **GETTING TO LINZ:**
 
 I found easiest way to get into Linz is by train. The train between Salzburg and Vienna stops in Linz. Train journey in Austria is always hassle free. Daily transport pass costs in Linz about EUR 4,50 and if you love exploring city on foot like me then it’s a twenty minutes to half an hour walk from the train station to the town centre.
+
+Useful links:
 
 [www.poestlingberg.at](http://www.poestlingberg.at/){: target="_blank"}
 
