@@ -25,11 +25,7 @@ The day I come to know about Pöstlingberg, I had decided to explore it in my ne
 
 This city has many historical buildings, great architecture and modern innovations to offer as other high-ranking Austrian cities. Watch the whole city tour in quick session.
 
-&nbsp;
-
-&nbsp;
-
-&nbsp;
+&lt;iframe width="560" height="315" src="https://www.youtube.com/embed/v0fjLhbPiTI" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen&gt;&lt;/iframe&gt;
 
 Finally, I had a chance to visit Linz and then it was the time to explore old and stylish tram with WOW view. This ride comes with lots of fun with scenery and many things to do at the top of the Pöstlingberg so overall this is well worth the journey. It took me only 20 minutes to climbs Linz & reaches high in mountain. This journey starts from centre of Linz, Hauptplatz and on its way it passes the Anton Bruckner University and the Zoo.
 
