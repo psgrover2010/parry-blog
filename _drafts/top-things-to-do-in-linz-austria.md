@@ -1,9 +1,9 @@
 ---
 layout: post
 current: post
-cover: uploads/0001.jpg
+cover: uploads/000001.jpeg
 navigation: true
-title: LINZ- A Fantastic Trip With Minimal Spending? Here's How.
+title: Linz-A Budget Trip With Beautiful View? Here's How.
 date: 2019-08-06 10:00:00
 tags:
   - Europe
@@ -65,7 +65,7 @@ Uphill or downhill journey (reduced fare) 2 €
 
 Rest assured you will admire the cityscape of Linz and plenty of beautiful scenery during the trip. On-top of this quiet area of Linz is the Basilica church, the Grottenbahn attraction and several restaurants and caf&eacute;s.
 
-![](/uploads/LINZ1 &#40;4&#41;.jpeg){: width="1620" height="1080"}
+![](/uploads/000001.jpeg){: width="1620" height="1080"}
 
 ![](/uploads/LINZ1 &#40;6&#41;.jpeg){: width="1620" height="1080"}
 
