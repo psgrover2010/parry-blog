@@ -3,7 +3,7 @@ layout: post
 current: post
 cover: uploads/000001.jpeg
 navigation: true
-title: Linz-A Budget Trip With Beautiful View? Here's How.
+title: Linz-A Budget Trip With Beautiful View-Here is How
 date: 2019-08-06 10:00:00
 tags:
   - Europe
