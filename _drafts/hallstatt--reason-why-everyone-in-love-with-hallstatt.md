@@ -13,21 +13,17 @@ subclass: post tag-getting-started
 author: parry
 ---
 
-&nbsp;
+I always look for some unique holiday destinations which are not well-known place however it's obvious I cannot miss the places which are famous for Beauty & Nature.
 
-I always look for some unique holiday destinations which are not well-known place however obviously I cannot miss the places which are famous for Beauty & Nature.
-
-It is very simple to find as we have a powerful social media where we can see amazing place and can think ‘Where IS that?’ and then ‘Can I actually go there with family specially with little angel?’.
-
-For this reason, I took the chance to visit alone when family is in India, it is a wonderful moment and breathtakingly trip to Gosau and the village of Hallstatt – a UNESCO World Heritage.
+For this reason, I took a chance to witness and make my visit memorable with breathtaking trip to Gosau and the village of Hallstatt – a UNESCO World Heritage.
 
 These places are located in the Salzkammergut region of Austria. These places are not far away from Vienna and getting there is super easy as there is direct train from Vienna Hauptbahnhof to Attnang-Puchheim where you then switch to the local REX (similarly like local s-Bahn in Vienna with beautiful view) towards Hallstatt. The total journey is approximately 3 hours 30 minutes.
 
-These places have too much to do so please don’t rush and spend at someday to explore the city including Dachstein, Gosau Lake, Bad Ischl etc. I am sure, you will agree to it & in the end when you read these reasons you cannot rheostat yourself to fall in Love with Hallstatt.
+These places have too much to do so please don’t rush and spend someday to explore the city including Dachstein, Gosau Lake, Bad Ischl etc. I am sure, you will agree to it & in the end when you read these reasons you cannot rheostat yourself to fall in Love with Hallstatt.
 
-I always found&nbsp;**Airbnb (**[**https://www.airbnb.com/**](https://www.airbnb.com/){: target="_blank"}**)&nbsp;**&nbsp;is a good option to book a stay and after a lot of research I found an apartment with an amazing view in a Vital Hotel ([https://www.vitalhotelgosau.at/](https://www.vitalhotelgosau.at/){: target="_blank"}) in Gosau.&nbsp; If you are a first timer in Airbnb then I would request to click on this link to complete the process to get the discount &nbsp;[https://www.airbnb.com/c/parvinders222?currency=EUR](https://www.airbnb.com/c/parvinders222?currency=EUR){: target="_blank"}&nbsp;both ways.
+I found&nbsp;**[Airbnb](https://www.airbnb.com/){: target="_blank"}&nbsp;**is a good option to book a stay and after a lot of research I found an apartment with an amazing view in a [Vital Hotel](https://www.vitalhotelgosau.at/){: target="_blank"} in Gosau.&nbsp; If you are a first timer in Airbnb then I would request to click on this [link](https://www.airbnb.com/c/parvinders222?currency=EUR){: target="_blank"}to complete the process to get the discount both ways.
 
-As others good hotel staff at Vital Hotel were very friendly and welcoming and it was a good stay. I stayed there for two nights –It was so peaceful and serene.
+As others good hotel, staff at Vital Hotel were very friendly and welcoming and it was a good stay. I stayed there for two nights –It was so peaceful and scenery.
 
 Gosau is a small tiny town located in south of Bad Ischl in the Salzkammergut. There was a main reason to stay here due to its&nbsp;**scenic surroundings.**
 
@@ -37,7 +33,7 @@ If you are traveling from Salzburg then catch the bus 150 until bad Ischl & swit
 
 A simply you can do the reverse if you plan to visit Hallstatt from Gosau. Self-drive on this way is one of the amazing drives as you will passes through forests and through the mountains.
 
-Before I go any further, let me tell you that I don’t like hiking. I cannot miss great views even if I need to walk for a couple of hours.
+Before I go any further, let me tell you that I don’t like hiking but I cannot miss great views even if I need to walk for a couple of hours.
 
 **Tipp**\: If you are traveling with child then be aware there is lot of walking involve if you plan for Dachstein.&nbsp;
 
@@ -45,11 +41,9 @@ Before I go any further, let me tell you that I don’t like hiking. I cannot mi
 
 I started my day with ‘’All-in-One’’ ticket at Dachstein Krippenstein where I had explored the Mammut & Ice cave.&nbsp;
 
-**Mammut Cave****\:**
+##### **Mammut Cave****\:**
 
-## ****Getting Here****\:**&nbsp;Bus 543 direction towards Obertraun Dachsteinseilbahn Talstation from Hallstatt Römische for 20 minutes to the Dachstein Visitor Center; there ride up the cable car gondola to the 1st station.&nbsp;**Closed In Winter**\: The Mammut Caves are closed for Winter each November until May.**
-
-**&nbsp;**
+*Getting Here*\: Bus 543 direction towards Obertraun Dachsteinseilbahn Talstation from Hallstatt Römische in 20 minutes to the Dachstein Visitor Center; there ride up to the cable car gondola to the 1st station.&nbsp;**Closed In Winter**\: The Mammut Caves are closed for Winter each November until May.
 
 I have started at middle station Schönbergalm (section I) for the Giant Mammut Cave which includes approximately 15 to 20 minutes walking toward cave entrance and then approximately 800 steps with few stairs on your way. You will be given the tour number at starting point and free guided tour is for 50 minutes with temperature of +3 &deg;C (37,4 &deg;F).
 
