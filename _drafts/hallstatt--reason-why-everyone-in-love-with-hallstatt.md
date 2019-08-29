@@ -17,17 +17,27 @@ I always look for some unique holiday destinations which are not well-known plac
 
 For this reason, I took a chance to witness and make my visit memorable with breathtaking trip to Gosau and the village of Hallstatt – a UNESCO World Heritage.
 
+![](/uploads/Hallstatt 1 &#40;11&#41;.jpeg){: width="6000" height="4000"}
+
 These places are located in the Salzkammergut region of Austria. These places are not far away from Vienna and getting there is super easy as there is direct train from Vienna Hauptbahnhof to Attnang-Puchheim where you then switch to the local REX (similarly like local s-Bahn in Vienna with beautiful view) towards Hallstatt. The total journey is approximately 3 hours 30 minutes.
 
 These places have too much to do so please don’t rush and spend someday to explore the city including Dachstein, Gosau Lake, Bad Ischl etc. I am sure, you will agree to it & in the end when you read these reasons you cannot rheostat yourself to fall in Love with Hallstatt.
 
-I found&nbsp;**[Airbnb](https://www.airbnb.com/){: target="_blank"}&nbsp;**is a good option to book a stay and after a lot of research I found an apartment with an amazing view in a [Vital Hotel](https://www.vitalhotelgosau.at/){: target="_blank"} in Gosau.&nbsp; If you are a first timer in Airbnb then I would request to click on this [link](https://www.airbnb.com/c/parvinders222?currency=EUR){: target="_blank"}to complete the process to get the discount both ways.
+![](/uploads/Hallstatt 1 &#40;3&#41;.jpeg){: width="5862" height="3298"}
+
+I found&nbsp;**[Airbnb](https://www.airbnb.com/){: target="_blank"}&nbsp;**is a good option to book a stay and after a lot of research I found an apartment with an amazing view in a [Vital Hotel](https://www.vitalhotelgosau.at/){: target="_blank"} in Gosau.&nbsp; If you are a first timer in Airbnb then I would request to click on this [link](https://www.airbnb.com/c/parvinders222?currency=EUR){: target="_blank"}&nbsp;to complete the process to get the discount both ways.
 
 As others good hotel, staff at Vital Hotel were very friendly and welcoming and it was a good stay. I stayed there for two nights –It was so peaceful and scenery.
 
+![](/uploads/Hallstatt 1 &#40;7&#41;.jpeg){: width="6000" height="4000"}
+
 Gosau is a small tiny town located in south of Bad Ischl in the Salzkammergut. There was a main reason to stay here due to its&nbsp;**scenic surroundings.**
 
-**Getting Here:**&nbsp;Bus 543 from Hallstatt with transfer to Bus 542 at Hallstatt Gosaum&uuml;hle which will take 15-20 minutes to the Gosau; last ride is at 18:16 so please plan your trip accordingly.
+![](/uploads/Hallstatt 1 &#40;6&#41;.jpeg){: width="6000" height="4000"}
+
+**Getting Here:**&nbsp;Bus 543 from Hallstatt with transfer to Bus 542 at Hallstatt Gosaum&uuml;hle which will take 15-20 minutes to the Gosau; last ride is at 18:16 so please plan your trip accordingly.&nbsp;
+
+![](/uploads/Hallstatt 1 &#40;15&#41;.jpeg){: width="6000" height="4000"}
 
 If you are traveling from Salzburg then catch the bus 150 until bad Ischl & switch to Bus 542 directly which will drop you right to the lake of Gosau in approximate 30 minutes.
 
@@ -35,11 +45,15 @@ A simply you can do the reverse if you plan to visit Hallstatt from Gosau. Self-
 
 Before I go any further, let me tell you that I don’t like hiking but I cannot miss great views even if I need to walk for a couple of hours.
 
+![](/uploads/Hallstatt 1 &#40;10&#41;.jpeg){: width="6000" height="4000"}
+
 **Tipp**\: If you are traveling with child then be aware there is lot of walking involve if you plan for Dachstein.&nbsp;
 
 **Dachstein Krippenstein****\:**
 
 I started my day with ‘’All-in-One’’ ticket at Dachstein Krippenstein where I had explored the Mammut & Ice cave.&nbsp;
+
+![](/uploads/Hallstatt 1 &#40;9&#41;.jpeg){: width="6000" height="4000"}
 
 ##### **Mammut Cave****\:**
 
