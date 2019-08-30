@@ -21,11 +21,11 @@ For this reason, I took a chance to witness and make my visit memorable with bre
 
 These places are located in the Salzkammergut region of Austria. These places are not far away from Vienna and getting there is super easy as there is direct train from Vienna Hauptbahnhof to Attnang-Puchheim where you then switch to the local REX (similarly like local s-Bahn in Vienna with beautiful view) towards Hallstatt. The total journey is approximately 3 hours 30 minutes.
 
-These places have too much to do so please don’t rush and spend someday to explore the city including Dachstein, Gosau Lake, Bad Ischl etc. I am sure, you will agree to it & in the end when you read these reasons you cannot rheostat yourself to fall in Love with Hallstatt.
+These places have too much to do so please don’t rush and spend someday to explore the city including Dachstein, Gosau Lake, Bad Ischl etc. I am sure, you will agree to it & in the end when you read this article you cannot rheostat yourself to fall in Love with Hallstatt.
 
 ![](/uploads/Hallstatt 1 &#40;3&#41;.jpeg){: width="5862" height="3298"}
 
-I found&nbsp;**[Airbnb](https://www.airbnb.com/){: target="_blank"}&nbsp;**is a good option to book a stay and after a lot of research I found an apartment with an amazing view in a [Vital Hotel](https://www.vitalhotelgosau.at/){: target="_blank"} in Gosau.&nbsp; If you are a first timer in Airbnb then I would request to click on this [link](https://www.airbnb.com/c/parvinders222?currency=EUR){: target="_blank"}&nbsp;to complete the process to get the discount both ways.
+I found&nbsp;**[Airbnb](https://www.airbnb.com/){: target="_blank"}&nbsp;**is a good option to book a stay and after a lot of research I found an apartment with an amazing view i.e. [Vital Hotel](https://www.vitalhotelgosau.at/){: target="_blank"} in Gosau.&nbsp; If you are a first timer in Airbnb then I would request to click on this [link](https://www.airbnb.com/c/parvinders222?currency=EUR){: target="_blank"}&nbsp;to complete the process to get the discount both ways.
 
 As others good hotel, staff at Vital Hotel were very friendly and welcoming and it was a good stay. I stayed there for two nights –It was so peaceful and scenery.
 
@@ -57,7 +57,11 @@ I started my day with ‘’All-in-One’’ ticket at Dachstein Krippenstein wh
 
 ##### **Mammut Cave****\:**
 
-*Getting Here*\: Bus 543 direction towards Obertraun Dachsteinseilbahn Talstation from Hallstatt Römische in 20 minutes to the Dachstein Visitor Center; there ride up to the cable car gondola to the 1st station.&nbsp;**Closed In Winter**\: The Mammut Caves are closed for Winter each November until May.
+*Getting Here*\: Bus 543 direction towards Obertraun Dachsteinseilbahn Talstation from Hallstatt Römische in 20 minutes to the Dachstein Visitor Center; there ride up to the cable car gondola to the 1st station.&nbsp;
+
+![](/uploads/Hallstatt 1 &#40;8&#41;.jpeg){: width="6000" height="4000"}
+
+**Closed In Winter**\: The Mammut Caves are closed for Winter each November until May.
 
 I have started at middle station Schönbergalm (section I) for the Giant Mammut Cave which includes approximately 15 to 20 minutes walking toward cave entrance and then approximately 800 steps with few stairs on your way. You will be given the tour number at starting point and free guided tour is for 50 minutes with temperature of +3 &deg;C (37,4 &deg;F).
 
