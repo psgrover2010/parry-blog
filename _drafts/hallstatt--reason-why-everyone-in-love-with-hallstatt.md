@@ -33,6 +33,8 @@ As others good hotel, staff at Vital Hotel were very friendly and welcoming and 
 
 Gosau is a small tiny town located in south of Bad Ischl in the Salzkammergut. There was a main reason to stay here due to its&nbsp;**scenic surroundings.**
 
+**![](/uploads/Hallstatt 1 &#40;14&#41;.jpeg){: width="6000" height="4000"}**
+
 ![](/uploads/Hallstatt 1 &#40;6&#41;.jpeg){: width="6000" height="4000"}
 
 **Getting Here:**&nbsp;Bus 543 from Hallstatt with transfer to Bus 542 at Hallstatt Gosaum&uuml;hle which will take 15-20 minutes to the Gosau; last ride is at 18:16 so please plan your trip accordingly.&nbsp;
@@ -65,25 +67,29 @@ I started my day with ‘’All-in-One’’ ticket at Dachstein Krippenstein wh
 
 I have started at middle station Schönbergalm (section I) for the Giant Mammut Cave which includes approximately 15 to 20 minutes walking toward cave entrance and then approximately 800 steps with few stairs on your way. You will be given the tour number at starting point and free guided tour is for 50 minutes with temperature of +3 &deg;C (37,4 &deg;F).
 
-This name ‘’Mammut Cave’’ was chosen by explorers due to the surprizing dimensions of the underground spaces and passageways contained within this cave system. At present around 1 km of passageways can be seen through free guided tour wherein more than 70 km of these passageways have been explored.
+&nbsp;
 
-**Children accessibility to the cave?**You will be amazed to see the fantastic infrastructure of the Mammut Cave. It is perfect for visits with kids of any age.&nbsp;
+&nbsp;
+
+This name ‘’[Mammut Cave](https://dachstein-salzkammergut.com/en/summer/below-ground/mammut-cave/){: target="_blank"}’’ was chosen by explorers due to the surprizing dimensions of the underground spaces and passageways contained within this cave system. At present around 1 km of passageways can be seen through free guided tour wherein more than 70 km of these passageways have been explored.
+
+**Children accessibility to the cave?&nbsp;**You will be amazed to see the fantastic infrastructure of the Mammut Cave. It is perfect for visits with kids of any age.&nbsp;
 
 **Note**\: Warm clothing and comfortable sports shoes\! This cave can be visited with only with a trained guide. I recommend that you wear comfortable shoes and warm clothing. Temperatures in the cave will be approximately of +3 &deg;C (37,4 &deg;F) throughout the tour.
-
-[https://dachstein-salzkammergut.com/en/summer/below-ground/mammut-cave/](https://dachstein-salzkammergut.com/en/summer/below-ground/mammut-cave/){: target="_blank"}
 
 After this I headed toward to my favourite ‘’ICE CAVE’’
 
 **Giant Ice Cave****\:**
 
-**&nbsp;**
-
 This cave is also located at middle station Schönbergalm (section I) which includes another approximately 15 to 20 minutes steep walking toward cave entrance and then nearly 500 steps with few stairs on your way. You will be given the tour number again at starting point and free guided tour is for another 50 minutes with this time temperature of -2 &deg;C (26,6 &deg;F).
+
+&nbsp;
 
 **&nbsp;**
 
 I can give you assurance that you will never regret as it had Remarkable impression. This tour includes the cave bears, rope bridge and in the end light & sound show. While walking all of a sudden you hear roaring of ‘’Ben & Boris’’ on the other side ice revealed in every colour.
+
+&nbsp;
 
 **&nbsp;**
 
@@ -91,27 +97,31 @@ The bad part is that due to global warming Giant Ice size is not increasing howe
 
 **&nbsp;**
 
-**Children accessibility to the cave?**You will be amazed to see the fantastic infrastructure of the Mammut Cave. It is perfect for visits with kids of any age.&nbsp;
+**Children accessibility to the cave?** Beaware of cold enviourment inside otherwise infrastructure is brilliant as like Mammut Cave.&nbsp;
+
+**&nbsp;Note**\: Warm clothing and non-slippery shoes\! This cave can be visited with only with a trained guide. I recommend that you wear comfortable shoes and warm clothing. Temperatures in the cave will be approximately of -2 &deg;C (26,6 &deg;F) throughout the tour.
 
 **&nbsp;**
 
-**Note**\: Warm clothing and non-slippery shoes\! This cave can be visited with only with a trained guide. I recommend that you wear comfortable shoes and warm clothing. Temperatures in the cave will be approximately of -2 &deg;C (26,6 &deg;F) throughout the tour.
-
-**&nbsp;**
-
-[https://dachstein-salzkammergut.com/en/summer/below-ground/dachstein-giant-ice-cave/](https://dachstein-salzkammergut.com/en/summer/below-ground/dachstein-giant-ice-cave/){: target="_blank"}
+&nbsp;
 
 I was so tired and after these two memorable cave visit, I was in a favour of taking a break but when I saw there is another ride in cable car for astonishing view with which your heart can faint then I decided to ride up the cable car gondola to the 2nd station to 5 Finger lookout point.
+
+![](/uploads/Hallstatt 1 &#40;12&#41;.jpeg){: width="6000" height="4000"}
 
 **5 Fingers Lookout Point****\:**
 
 This point at station Schönbergalm (section II) which includes another approximately 25 to 30 minutes’ walk toward for&nbsp;**most spectacular&nbsp;**top view.&nbsp;
 
+&nbsp;
+
+![](/uploads/Hallstatt 1 &#40;13&#41;.jpeg){: width="6000" height="4000"}
+
 **Conditions in The Winter:**&nbsp;This place is usually open in the Winter but in heavy snow you will have to do cross-country ski to the lookout area from the cable car station and obviously it will require proper cold weather clothing.
 
 I had started morning of my last day in the heart of Hallstatt Village.
 
-## **&nbsp;**
+## **&nbsp;![](/uploads/Hallstatt 1 &#40;30&#41;.jpeg){: width="6000" height="4000"}**
 
 ## **Lake Hallstatt:**
 
@@ -119,7 +129,7 @@ I have finally said good bye to Gosau and moved to main place i.e. Hallstatt –
 
 I must say this is spectacular & beautiful village across the lake.
 
-### **&nbsp;**
+### **&nbsp;![](/uploads/Hallstatt 1 &#40;4&#41;.jpeg){: width="6000" height="4000"}**
 
 ## **Things to do in Hallstatt**
 
@@ -127,19 +137,27 @@ I must say this is spectacular & beautiful village across the lake.
 
 Lakeside stroll is one of the most delightful part of my visit.&nbsp; When you walk along the Lake Hallstatt, you will notice how village’s houses cling to the cliffside of the Mountain.&nbsp;
 
-**Boat Trips**
+![](/uploads/Hallstatt 1 &#40;2&#41;.jpeg){: width="6000" height="4000"}
 
-**&nbsp;**
+![](/uploads/Hallstatt 1 &#40;28&#41;.jpeg){: width="4000" height="6000"}
+
+**Boat Trips**
 
 Apart from Stefanie Ferry route (*€ 3 in August 2019*) which runs 365 days a year which goes around trip once in hour from train station to village and vice versa I recommend to hire another boat trip to take the quick glance of lake to see the beautiful village.
 
 I love the tour boat company on Lake Hallstatt called Navia ([*website*](http://www.navia.at/){: target="_blank"}) which uses traditionally crafted&nbsp;**wooden salt boats**. They are so good as this is the only place where I found display in HINDI. Please reserve your place in advance via online as Navia has daily tours April through late October.
 
+![](/uploads/Hallstatt 1 &#40;23&#41;.jpeg){: width="4000" height="6000"}
+
 **Funicular Railway**
 
-**&nbsp;**
-
 Yes, this small town also has the Funicular like other major cities and this ride will take you onto the mountain. &nbsp;On top, you can visit the salt mine or the Rudolfstrum restaurant, which has a panoramic terrace overlooking the lake. Do not miss the ‘World Heritage Skywalk’ – a WOOOOW view platform from the mountain 350 metres above Hallstatt.
+
+## &nbsp;
+
+## &nbsp;
+
+## &nbsp;
 
 ## **&nbsp;**
 
