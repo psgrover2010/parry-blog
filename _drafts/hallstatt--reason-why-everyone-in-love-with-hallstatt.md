@@ -153,47 +153,49 @@ I love the tour boat company on Lake Hallstatt called Navia ([*website*](http://
 
 Yes, this small town also has the Funicular like other major cities and this ride will take you onto the mountain. &nbsp;On top, you can visit the salt mine or the Rudolfstrum restaurant, which has a panoramic terrace overlooking the lake. Do not miss the ‘World Heritage Skywalk’ – a WOOOOW view platform from the mountain 350 metres above Hallstatt.
 
-## &nbsp;
+## ![](/uploads/Hallstatt 1 &#40;16&#41;.jpeg){: width="6000" height="4000"}
+
+## ![](/uploads/Hallstatt 1 &#40;17&#41;.jpeg){: width="6000" height="4000"}
 
 ## &nbsp;
-
-## &nbsp;
-
-## **&nbsp;**
 
 **Hallstatt Salt Mine (Salzwelten):**
 
-## **&nbsp;**
-
 If you are not interested to see world oldest salt mine and Europe’s oldest wooden staircase then buy a ticket only to go up and enjoy the surrounding and come back in just&nbsp;*€&nbsp;*18 per person.
+
+![](/uploads/Hallstatt 1 &#40;19&#41;.jpeg){: width="6000" height="4000"}
+
+![](/uploads/Hallstatt 1 &#40;20&#41;.jpeg){: width="6000" height="4000"}
 
 Visit to restaurant and Sky walk is included in this ticket however if you want to go back 7,000 years ago and would like to explore and understand the history of Bronze Age mining then begin with salt mining tour. You won’t miss the opportunity to see the multimedia technology including a Bronze Age Cinema 400 meters below ground.
 
-Closed in Winter: The Salt Mine is closed in Winter.
+**Closed in Winter:** The Salt Mine is closed in Winter.
 
 **Skywalk:**
 
 A bridge hanging approximately 1150 feet over the edge of the cliff i.e. The Skywalk
 
+![](/uploads/Hallstatt 1 &#40;21&#41;.jpeg){: width="6000" height="4000"}
+
 You will experience wherein you are exactly flying over the rooftops of the village. This is really one of the top things to do in Hallstatt.
 
 Don’t miss the Ice cream with the view, I wanted to try something different so took Bubble-gum flavour this time.
+
+![](/uploads/Hallstatt 1 &#40;18&#41;.jpeg){: width="6000" height="4000"}
 
 **Market Square (*****Marktplatz*****):**
 
 Would highly recommend to spend sometime in the center of Old Town Hallstatt.
 
-**&nbsp;**
+**&nbsp;![](/uploads/Hallstatt 1 &#40;29&#41;.jpeg){: width="6000" height="4000"}**
 
-**&nbsp;**
+**&nbsp;Food**
 
-**Food**
-
-**&nbsp;**
-
-If you are eating Fish then do not miss the grilled fish dish in Hallstatt.&nbsp; You can have this at any of the lakeside restaurants. You might can get this from locals along the lake who will also offer to cook you fish, so definitely try it.
+A**&nbsp;**Fish- Do not miss the grilled fish dish in Hallstatt.&nbsp; You can have this at any of the lakeside restaurants. You might can get this from locals along the lake who will also offer to cook you fish, so definitely try it.
 
 Try Schaumrollen which resemble like Cream roll which costs you € 2,50 and it’s so yummy like Austrian desserts.
+
+![](/uploads/Hallstatt 1 &#40;27&#41;.jpeg){: width="6000" height="4000"}
 
 ## **Luggage Storage**
 
