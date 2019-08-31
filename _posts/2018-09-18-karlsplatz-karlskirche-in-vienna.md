@@ -34,11 +34,17 @@ It always looks amazing in different seasons.&nbsp;
 ![](/uploads/evening pic .jpg)
 {: .present-before-paste}
 
-![](/uploads/Karlskirche.jpg){: width="2048" height="1367"}
+![](/uploads/Karlsplatz &#40;1&#41;.jpeg){: width="2048" height="1367"}
 {: .present-before-paste}
 
-![](/uploads/Karlskirche1.jpg){: width="2048" height="1405"}
+![](/uploads/Karlsplatz &#40;2&#41;.jpeg){: width="2048" height="1367"}
 {: .present-before-paste}
 
-![](/uploads/Karlskirche2.jpg){: width="2048" height="1367"}
+![](/uploads/Karlsplatz &#40;3&#41;.jpeg){: width="2048" height="1405"}
+{: .present-before-paste}
+
+&nbsp;
+{: .present-before-paste}
+
+&nbsp;
 {: .present-before-paste}
