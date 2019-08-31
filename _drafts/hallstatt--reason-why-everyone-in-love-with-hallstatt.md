@@ -211,6 +211,8 @@ Well, this place is indeed beautiful as it’s picture and this is not the place
 
 Please be prepared with meeting hundreds of people in Hallstatt street, you will see in every hour hundreds of people are coming & going back from 9 to 5 during the day. Most of the tourist comes from China as Chinese built the similar village in China. Hallstatt is a housing development in Luoyang, Boluo County in China and they just in love with the original town like others.
 
+![](/uploads/Hallstatt 1 &#40;22&#41;.jpeg){: width="6000" height="4000"}
+
 If you want to explore this town as a ghost town then stay there for a night and what happens after 6pm when the last ferry goes back with full of peoples. However, most of the caf&eacute;s & restaurants start getting close sue to less tourist and you have left with limited options for entertainment and dining.
 
 I will definitely return to this place next year to check out the winter beauty of the town.
