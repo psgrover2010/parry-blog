@@ -131,7 +131,9 @@ I must say this is spectacular & beautiful village across the lake.
 
 ### **&nbsp;![](/uploads/Hallstatt 1 &#40;4&#41;.jpeg){: width="6000" height="4000"}**
 
-## **Things to do in Hallstatt**
+##### &nbsp;
+
+##### **Things to do in Hallstatt**
 
 **Sit & stroll across the Lake Hallstatt****\:**
 
@@ -140,6 +142,8 @@ Lakeside stroll is one of the most delightful part of my visit.&nbsp; When you w
 ![](/uploads/Hallstatt 1 &#40;2&#41;.jpeg){: width="6000" height="4000"}
 
 ![](/uploads/Hallstatt 1 &#40;28&#41;.jpeg){: width="4000" height="6000"}
+
+![](/uploads/Hallstatt 1 &#40;26&#41;.jpeg){: width="6000" height="4000"}
 
 **Boat Trips**
 
@@ -213,7 +217,7 @@ Please be prepared with meeting hundreds of people in Hallstatt street, you will
 
 ![](/uploads/Hallstatt 1 &#40;22&#41;.jpeg){: width="6000" height="4000"}
 
-If you want to explore this town as a ghost town then stay there for a night and what happens after 6pm when the last ferry goes back with full of peoples. However, most of the caf&eacute;s & restaurants start getting close sue to less tourist and you have left with limited options for entertainment and dining.
+If you want to explore this town as a ghost town then stay there for a night and see what happens after 6pm when the last ferry goes back with full of peoples. However, most of the caf&eacute;s & restaurants start getting close due to less tourist and you have left with limited options for entertainment and dining.
 
 I will definitely return to this place next year to check out the winter beauty of the town.
 
