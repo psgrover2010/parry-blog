@@ -25,7 +25,7 @@ These places have too much to do so please don’t rush and spend someday to exp
 
 ![](/uploads/Hallstatt 1 &#40;3&#41;.jpeg){: width="5862" height="3298"}
 
-I found&nbsp;**[Airbnb](https://www.airbnb.com/){: target="_blank"}&nbsp;**is a good option to book a stay and after a lot of research I found an apartment with an amazing view i.e. [Vital Hotel](https://www.vitalhotelgosau.at/){: target="_blank"} in Gosau.&nbsp; If you are a first timer in Airbnb then I would request to click on this [link](https://www.airbnb.com/c/parvinders222?currency=EUR){: target="_blank"}&nbsp;to complete the process to get the discount both ways.
+I found&nbsp;**[Airbnb](https://www.airbnb.com/){: target="_blank"}**&nbsp;a good option to book a stay and after a lot of research I found an apartment with an amazing view i.e. [Vital Hotel](https://www.vitalhotelgosau.at/){: target="_blank"} in Gosau.&nbsp; If you are a first timer in Airbnb then I would request to click on this [link](https://www.airbnb.com/c/parvinders222?currency=EUR){: target="_blank"}&nbsp;to complete the process to get the discount both ways.
 
 As others good hotel, staff at Vital Hotel were very friendly and welcoming and it was a good stay. I stayed there for two nights –It was so peaceful and scenery.
 
@@ -69,8 +69,6 @@ I have started at middle station Schönbergalm (section I) for the Giant Mammut 
 
 ![](/uploads/mammut cave.jpg){: width="1080" height="737"}
 
-&nbsp;
-
 This name ‘’[Mammut Cave](https://dachstein-salzkammergut.com/en/summer/below-ground/mammut-cave/){: target="_blank"}’’ was chosen by explorers due to the surprizing dimensions of the underground spaces and passageways contained within this cave system. At present around 1 km of passageways can be seen through free guided tour wherein more than 70 km of these passageways have been explored.
 
 **Children accessibility to the cave?&nbsp;**You will be amazed to see the fantastic infrastructure of the Mammut Cave. It is perfect for visits with kids of any age.&nbsp;
@@ -81,29 +79,17 @@ After this I headed toward to my favourite ‘’ICE CAVE’’
 
 **Giant Ice Cave****\:**
 
-This cave is also located at middle station Schönbergalm (section I) which includes another approximately 15 to 20 minutes steep walking toward cave entrance and then nearly 500 steps with few stairs on your way. You will be given the tour number again at starting point and free guided tour is for another 50 minutes with this time temperature of -2 &deg;C (26,6 &deg;F).
-
-&nbsp;
+[Ice cave](https://dachstein-salzkammergut.com/en/summer/below-ground/dachstein-giant-ice-cave/){: target="_blank"} is also located at middle station Schönbergalm (section I) which includes another approximately 15 to 20 minutes steep walking toward cave entrance and then nearly 500 steps with few stairs on your way. You will be given the tour number again at starting point and free guided tour is for another 50 minutes with this time temperature of -2 &deg;C (26,6 &deg;F).
 
 **&nbsp;![](/uploads/ice cave.jpg){: width="1066" height="727"}**
 
 I can give you assurance that you will never regret as it had Remarkable impression. This tour includes the cave bears, rope bridge and in the end light & sound show. While walking all of a sudden you hear roaring of ‘’Ben & Boris’’ on the other side ice revealed in every colour.
 
-&nbsp;
-
-**&nbsp;**
-
 The bad part is that due to global warming Giant Ice size is not increasing however it has been well maintained so that actual size does not decrease. So, hurry up and visit this place before it’s gets disappear.
-
-**&nbsp;**
 
 **Children accessibility to the cave?** Beaware of cold enviourment inside otherwise infrastructure is brilliant as like Mammut Cave.&nbsp;
 
 **&nbsp;Note**\: Warm clothing and non-slippery shoes\! This cave can be visited with only with a trained guide. I recommend that you wear comfortable shoes and warm clothing. Temperatures in the cave will be approximately of -2 &deg;C (26,6 &deg;F) throughout the tour.
-
-**&nbsp;**
-
-&nbsp;
 
 I was so tired and after these two memorable cave visit, I was in a favour of taking a break but when I saw there is another ride in cable car for astonishing view with which your heart can faint then I decided to ride up the cable car gondola to the 2nd station to 5 Finger lookout point.
 
@@ -113,29 +99,25 @@ I was so tired and after these two memorable cave visit, I was in a favour of ta
 
 This point at station Schönbergalm (section II) which includes another approximately 25 to 30 minutes’ walk toward for&nbsp;**most spectacular&nbsp;**top view.&nbsp;
 
-&nbsp;
-
 ![](/uploads/Hallstatt 1 &#40;13&#41;.jpeg){: width="6000" height="4000"}
 
 **Conditions in The Winter:**&nbsp;This place is usually open in the Winter but in heavy snow you will have to do cross-country ski to the lookout area from the cable car station and obviously it will require proper cold weather clothing.
 
-I had started morning of my last day in the heart of Hallstatt Village.
+I had started morning of my last day in the heart of Hallstatt Village.**&nbsp;![](/uploads/Hallstatt 1 &#40;30&#41;.jpeg){: width="6000" height="4000"}**
 
-## **&nbsp;![](/uploads/Hallstatt 1 &#40;30&#41;.jpeg){: width="6000" height="4000"}**
+##### **Lake Hallstatt:**
 
-## **Lake Hallstatt:**
+Final good bye to Gosau and moved towards main place i.e. Hallstatt – the main reason I travelled for.
 
-I have finally said good bye to Gosau and moved to main place i.e. Hallstatt – the main reason I travelled for.
-
-I must say this is spectacular & beautiful village across the lake.
-
-### **&nbsp;![](/uploads/Hallstatt 1 &#40;4&#41;.jpeg){: width="6000" height="4000"}**
+I must say this is spectacular & beautiful village across the lake.**&nbsp;![](/uploads/Hallstatt 1 &#40;4&#41;.jpeg){: width="6000" height="4000"}**
 
 ##### &nbsp;
 
-##### **Things to do in Hallstatt**
+#### **Things to do in Hallstatt**
 
-**Sit & stroll across the Lake Hallstatt****\:**
+#### &nbsp;
+
+##### **Sit & stroll across the Lake Hallstatt****\:**
 
 Lakeside stroll is one of the most delightful part of my visit.&nbsp; When you walk along the Lake Hallstatt, you will notice how village’s houses cling to the cliffside of the Mountain.&nbsp;
 
@@ -145,17 +127,17 @@ Lakeside stroll is one of the most delightful part of my visit.&nbsp; When you w
 
 ![](/uploads/Hallstatt 1 &#40;26&#41;.jpeg){: width="6000" height="4000"}
 
-**Boat Trips**
+##### **Memorable Trip In Boat:**
 
-Apart from Stefanie Ferry route (*€ 3 in August 2019*) which runs 365 days a year which goes around trip once in hour from train station to village and vice versa I recommend to hire another boat trip to take the quick glance of lake to see the beautiful village.
+Apart from Stefanie Ferry route (*€ 3 paid in August 2019*) which runs 365 days a year which goes around trip once in a hour from train station to village and vice versa I recommend to hire another boat trip to take the quick glance of lake to see the beautiful village.
 
-I love the tour boat company on Lake Hallstatt called Navia ([*website*](http://www.navia.at/){: target="_blank"}) which uses traditionally crafted&nbsp;**wooden salt boats**. They are so good as this is the only place where I found display in HINDI. Please reserve your place in advance via online as Navia has daily tours April through late October.
+I love the tour boat company on Lake Hallstatt called Navia ([*website*](http://www.navia.at/){: target="_blank"}) which uses traditionally crafted&nbsp;**wooden salt boats**. They are so good and will also greet you as ''Namaste'' and this is the only place where I found display in HINDI. Please reserve your place in advance via online as Navia has daily tours April through late October.
 
 ![](/uploads/Hallstatt 1 &#40;23&#41;.jpeg){: width="4000" height="6000"}
 
-**Funicular Railway**
+##### **Funicular Ride:**
 
-Yes, this small town also has the Funicular like other major cities and this ride will take you onto the mountain. &nbsp;On top, you can visit the salt mine or the Rudolfstrum restaurant, which has a panoramic terrace overlooking the lake. Do not miss the ‘World Heritage Skywalk’ – a WOOOOW view platform from the mountain 350 metres above Hallstatt.
+Yes, this small town also has the Funicular like other major cities and this ride will take you on the mountain. &nbsp;On top, you can visit the salt mine or the Rudolfstrum restaurant, which has a panoramic terrace overlooking the lake. Do not miss the ‘World Heritage Skywalk’ – a WOOOOW view platform, from the mountain 350 metres above Hallstatt.
 
 ## ![](/uploads/Hallstatt 1 &#40;16&#41;.jpeg){: width="6000" height="4000"}
 
@@ -163,7 +145,7 @@ Yes, this small town also has the Funicular like other major cities and this rid
 
 ## &nbsp;
 
-**Hallstatt Salt Mine (Salzwelten):**
+##### **Visit to Hallstatt Salt Mine (Salzwelten):**
 
 If you are not interested to see world oldest salt mine and Europe’s oldest wooden staircase then buy a ticket only to go up and enjoy the surrounding and come back in just&nbsp;*€&nbsp;*18 per person.
 
@@ -175,43 +157,35 @@ Visit to restaurant and Sky walk is included in this ticket however if you want 
 
 **Closed in Winter:** The Salt Mine is closed in Winter.
 
-**Skywalk:**
+##### **A Woow view of Skywalk:**
 
 A bridge hanging approximately 1150 feet over the edge of the cliff i.e. The Skywalk
 
 ![](/uploads/Hallstatt 1 &#40;21&#41;.jpeg){: width="6000" height="4000"}
 
-You will experience wherein you are exactly flying over the rooftops of the village. This is really one of the top things to do in Hallstatt.
-
-Don’t miss the Ice cream with the view, I wanted to try something different so took Bubble-gum flavour this time.
+You will experience wherein you are exactly flying over the rooftops of the village. This is really one of the top things to do in Hallstatt. Don’t miss the Ice cream with the view, I wanted to try something different so took Bubble-gum flavour this time.
 
 ![](/uploads/Hallstatt 1 &#40;18&#41;.jpeg){: width="6000" height="4000"}
 
-**Market Square (*****Marktplatz*****):**
+##### **Hallstatt Market Square (*****Marktplatz*****):**
 
-Would highly recommend to spend sometime in the center of Old Town Hallstatt.
+Would highly recommend to spend sometime in the center of Old Town Hallstatt.**&nbsp;![](/uploads/Hallstatt 1 &#40;29&#41;.jpeg){: width="6000" height="4000"}**
 
-**&nbsp;![](/uploads/Hallstatt 1 &#40;29&#41;.jpeg){: width="6000" height="4000"}**
+##### **Must Try Food:**
 
-**&nbsp;Food**
+A**&nbsp;**Fish-Do not miss the grilled fish dish in Hallstatt. You can have this at any of the lakeside restaurants. You might can get this from locals along the lake who will also offer to cook you fish, so definitely try it.
 
-A**&nbsp;**Fish- Do not miss the grilled fish dish in Hallstatt.&nbsp; You can have this at any of the lakeside restaurants. You might can get this from locals along the lake who will also offer to cook you fish, so definitely try it.
+Try Schaumrollen which resemble like Cream roll which costs you € 2,50 and it’s so yummy like Austrian desserts.![](/uploads/Hallstatt 1 &#40;27&#41;.jpeg){: width="6000" height="4000"}
 
-Try Schaumrollen which resemble like Cream roll which costs you € 2,50 and it’s so yummy like Austrian desserts.
+##### **Luggage Storage:**
 
-![](/uploads/Hallstatt 1 &#40;27&#41;.jpeg){: width="6000" height="4000"}
+Hallstatt has many options for luggage storage, Hallstatt Tourism office can keep the luggage as per request and space availability for € 5 per luggage. They cannot keep it longer than 5’o clock so please plan your visit accordingly. They are located right next to the main Hallstatt Lahn bus stop on the South side of town.
 
-## **Luggage Storage**
+There are few caf&eacute;s in the town who also offer this service you just need to check out that. I kept my luggage in Salt mine visitor centre and there are plenty bag lockers including few Large lockers (90x35x85 cm) and few small lockers (45x35x85 cm).&nbsp; I used the small locker which costs €2.
 
-Do not worry as Hallstatt has many options for luggage storage, Hallstatt Tourism office can keep the luggage as per request and space availability for € 5 per luggage. They cannot keep it longer than 5’o clock so please plan your visit accordingly. They are located right next to the main Hallstatt Lahn bus stop on the South side of town.
+##### **Final thoughts on Hallstatt:**
 
-There are few caf&eacute;s in the town who also offer this service you just need to check out that.
-
-We kept our luggage in Salt mine visitor centre and there are plenty bag lockers including few Large lockers (90x35x85 cm) and few small lockers (45x35x85 cm).&nbsp; I used the small locker which costs €2.
-
-## **Final thoughts on Hallstatt:**
-
-Well, this place is indeed beautiful as it’s picture and this is not the place to miss if you are in Austria as you cannot miss Schönbrunn in Austria capital, Vienna ([https://thevisits.in/schönbrunn-palace-in-vienna-austria-indeed-you-are-pretty-as-your-pictures](https://thevisits.in/sch%C3%B6nbrunn-palace-in-vienna-austria-indeed-you-are-pretty-as-your-pictures){: target="_blank"}).&nbsp;&nbsp;
+Well, this place is indeed beautiful as it’s picture and this is not the place to miss if you are in Austria as you cannot miss [Schönbrunn](https://thevisits.in/schönbrunn-palace-in-vienna-austria-indeed-you-are-pretty-as-your-pictures){: target="_blank"}&nbsp;in Austria capital, Vienna.&nbsp;&nbsp;
 
 Please be prepared with meeting hundreds of people in Hallstatt street, you will see in every hour hundreds of people are coming & going back from 9 to 5 during the day. Most of the tourist comes from China as Chinese built the similar village in China. Hallstatt is a housing development in Luoyang, Boluo County in China and they just in love with the original town like others.
 
@@ -221,4 +195,4 @@ If you want to explore this town as a ghost town then stay there for a night and
 
 I will definitely return to this place next year to check out the winter beauty of the town.
 
-Have you also visited such locations? Write me in comments.
+Have you also visited such locations or Hallstatt & Gosau? Write me in comments.
