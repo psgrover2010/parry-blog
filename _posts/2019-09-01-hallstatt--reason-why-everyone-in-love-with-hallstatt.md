@@ -4,7 +4,7 @@ current: post
 cover: uploads/000001.jpeg
 navigation: true
 title: "Hallstatt-\_Reason why everyone in love with Hallstatt"
-date: 2019-09-01 10:00:00
+date: 2019-09-01 00:00:00
 tags:
   - Europe
   - Austria
