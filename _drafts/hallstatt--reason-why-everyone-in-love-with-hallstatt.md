@@ -67,7 +67,7 @@ I started my day with ‘’All-in-One’’ ticket at Dachstein Krippenstein wh
 
 I have started at middle station Schönbergalm (section I) for the Giant Mammut Cave which includes approximately 15 to 20 minutes walking toward cave entrance and then approximately 800 steps with few stairs on your way. You will be given the tour number at starting point and free guided tour is for 50 minutes with temperature of +3 &deg;C (37,4 &deg;F).
 
-&nbsp;
+![](/uploads/mammut cave.jpg){: width="1080" height="737"}
 
 &nbsp;
 
@@ -85,7 +85,7 @@ This cave is also located at middle station Schönbergalm (section I) which incl
 
 &nbsp;
 
-**&nbsp;**
+**&nbsp;![](/uploads/ice cave.jpg){: width="1066" height="727"}**
 
 I can give you assurance that you will never regret as it had Remarkable impression. This tour includes the cave bears, rope bridge and in the end light & sound show. While walking all of a sudden you hear roaring of ‘’Ben & Boris’’ on the other side ice revealed in every colour.
 
