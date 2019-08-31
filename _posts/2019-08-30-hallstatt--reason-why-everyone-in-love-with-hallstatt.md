@@ -1,7 +1,7 @@
 ---
 layout: post
 current: post
-cover: uploads/000001.jpeg
+cover: uploads/0000001.jpeg
 navigation: true
 title: "Hallstatt-\_Reason why everyone in love with Hallstatt"
 date: 2019-08-30 10:00:00
@@ -20,6 +20,8 @@ For this reason, I took a chance to witness and make my visit memorable with bre
 ![](/uploads/Hallstatt 1 &#40;11&#41;.jpeg){: width="6000" height="4000"}
 
 These places are located in the Salzkammergut region of Austria. These places are not far away from Vienna and getting there is super easy as there is direct train from Vienna Hauptbahnhof to Attnang-Puchheim where you then switch to the local REX (similarly like local s-Bahn in Vienna with beautiful view) towards Hallstatt. The total journey is approximately 3 hours 30 minutes.
+
+![](/uploads/0000001.jpeg){: width="6000" height="4000"}
 
 These places have too much to do so please don’t rush and spend someday to explore the city including Dachstein, Gosau Lake, Bad Ischl etc. I am sure, you will agree to it & in the end when you read this article you cannot rheostat yourself to fall in Love with Hallstatt.
 
