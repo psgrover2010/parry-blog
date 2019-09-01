@@ -99,13 +99,11 @@ I must say this is spectacular & beautiful village across the lake.**&nbsp;![](/
 
 Lakeside stroll is one of the most delightful part of my visit.&nbsp; When you walk along the Lake Hallstatt, you will notice how village’s houses cling to the cliffside of the Mountain.&nbsp;![](/uploads/Hallstatt-1 &#40;8&#41;.jpg){: width="1080" height="722"}![](/uploads/Hallstatt-1 &#40;9&#41;.jpg){: width="1047" height="1573"}![](/uploads/Hallstatt-1 &#40;10&#41;.jpg){: width="1075" height="721"}**Memorable Trip In Boat:**
 
-&nbsp;
+Apart from Stefanie Ferry route (*€ 3 paid in August 2019*) which runs 365 days a year which goes around trip once in a hour from train station to village and vice versa I recommend to hire another boat trip to take the quick glance of lake to see the beautiful village. I love the tour boat company on Lake Hallstatt called Navia ([*website*](http://www.navia.at/){: target="_blank"}) which uses traditionally crafted&nbsp;**wooden salt boats**. They are so good and will also greet you as ''Namaste'' and this is the only place where I found display in HINDI. Please reserve your place in advance via online as Navia has daily tours April through late October.![](/uploads/Hallstatt-1 &#40;11&#41;.jpg){: width="1064" height="1601"}**Funicular Ride:**
 
 &nbsp;
 
-Apart from Stefanie Ferry route (*€ 3 paid in August 2019*) which runs 365 days a year which goes around trip once in a hour from train station to village and vice versa I recommend to hire another boat trip to take the quick glance of lake to see the beautiful village.
-
-I love the tour boat company on Lake Hallstatt called Navia ([*website*](http://www.navia.at/){: target="_blank"}) which uses traditionally crafted&nbsp;**wooden salt boats**. They are so good and will also greet you as ''Namaste'' and this is the only place where I found display in HINDI. Please reserve your place in advance via online as Navia has daily tours April through late October.![](/uploads/Hallstatt-1 &#40;11&#41;.jpg){: width="1064" height="1601"}**Funicular Ride:**
+&nbsp;
 
 Yes, this small town also has the Funicular like other major cities and this ride will take you on the mountain. &nbsp;On top, you can visit the salt mine or the Rudolfstrum restaurant, which has a panoramic terrace overlooking the lake. Do not miss the ‘World Heritage Skywalk’ – a WOOOOW view platform, from the mountain 350 metres above Hallstatt.![](/uploads/Hallstatt-1 &#40;15&#41;.jpg){: width="1079" height="718"}![](/uploads/Hallstatt-1 &#40;12&#41;.jpg){: width="1070" height="711"}![](/uploads/Hallstatt-1 &#40;13&#41;.jpg){: width="1076" height="707"}
 
