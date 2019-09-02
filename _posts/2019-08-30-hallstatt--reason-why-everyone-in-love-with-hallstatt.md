@@ -21,7 +21,7 @@ These places are located in the Salzkammergut region of Austria. These places ar
 
 These places have too much to do so please don’t rush and spend someday to explore the city including Dachstein, Gosau Lake, Bad Ischl etc. I am sure, you will agree to it & in the end when you read this article you cannot rheostat yourself to fall in Love with Hallstatt.![](/uploads/Hallstatt-1 &#40;31&#41;.jpg){: width="1062" height="599"}
 
-> I found&nbsp;**[Airbnb](https://www.airbnb.com/){: target="_blank"}**&nbsp;a good option to book a stay and after a lot of research I found an apartment with an amazing view i.e. [Vital Hotel](https://www.vitalhotelgosau.at/en/){: target="_blank"} in Gosau.&nbsp; If you are a first timer in Airbnb then I would request to click on this [link](https://www.airbnb.com/c/parvinders222?currency=EUR){: target="_blank"}&nbsp;to complete the process to get the discount both ways.
+> I found&nbsp;**[Airbnb](https://www.airbnb.com/){: target="_blank"}**&nbsp;a good option to book a stay and after a lot of research I found an apartment with an amazing view i.e. [Vital Hotel](https://www.vitalhotelgosau.at/){: target="_blank"}&nbsp;in Gosau.&nbsp; If you are a first timer in Airbnb then I would request to click on this [link](https://www.airbnb.com/c/parvinders222?currency=EUR){: target="_blank"}&nbsp;to complete the process to get the discount both ways.
 
 As others good hotel, staff at Vital Hotel were very friendly and welcoming and it was a good stay. I stayed there for two nights –It was so peaceful and scenery.![](/uploads/Hallstatt-1 &#40;27&#41;.jpg){: width="1080" height="712"}
 
