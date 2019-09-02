@@ -17,13 +17,11 @@ I always look for some unique holiday destinations which are not well-known plac
 
 For this reason, I took a chance to witness and make my visit memorable with breathtaking trip to Gosau and the village of Hallstatt – a UNESCO World Heritage.![](/uploads/Hallstatt-1 &#40;32&#41;.jpg){: width="1079" height="719"}
 
-&nbsp;
-
 These places are located in the Salzkammergut region of Austria. These places are not far away from Vienna and getting there is super easy as there is direct train from Vienna Hauptbahnhof to Attnang-Puchheim where you then switch to the local REX (similarly like local s-Bahn in Vienna with beautiful view) towards Hallstatt. The total journey is approximately 3 hours 30 minutes.![](/uploads/0000001.JPG){: width="1335" height="892"}
 
 These places have too much to do so please don’t rush and spend someday to explore the city including Dachstein, Gosau Lake, Bad Ischl etc. I am sure, you will agree to it & in the end when you read this article you cannot rheostat yourself to fall in Love with Hallstatt.![](/uploads/Hallstatt-1 &#40;31&#41;.jpg){: width="1062" height="599"}
 
-I found&nbsp;**[Airbnb](https://www.airbnb.com/){: target="_blank"}**&nbsp;a good option to book a stay and after a lot of research I found an apartment with an amazing view i.e. [Vital Hotel](https://www.vitalhotelgosau.at/){: target="_blank"} in Gosau.&nbsp; If you are a first timer in Airbnb then I would request to click on this [link](https://www.airbnb.com/c/parvinders222?currency=EUR){: target="_blank"}&nbsp;to complete the process to get the discount both ways.
+> I found&nbsp;**[Airbnb](https://www.airbnb.com/){: target="_blank"}**&nbsp;a good option to book a stay and after a lot of research I found an apartment with an amazing view i.e. [Vital Hotel](https://www.vitalhotelgosau.at/en/){: target="_blank"} in Gosau.&nbsp; If you are a first timer in Airbnb then I would request to click on this [link](https://www.airbnb.com/c/parvinders222?currency=EUR){: target="_blank"}&nbsp;to complete the process to get the discount both ways.
 
 As others good hotel, staff at Vital Hotel were very friendly and welcoming and it was a good stay. I stayed there for two nights –It was so peaceful and scenery.![](/uploads/Hallstatt-1 &#40;27&#41;.jpg){: width="1080" height="712"}
 
@@ -35,27 +33,23 @@ Gosau is a small tiny town located in south of Bad Ischl in the Salzkammergut. T
 
 ![](/uploads/Hallstatt-1 &#40;1&#41;.jpg){: width="1080" height="718"}
 
-If you are traveling from Salzburg then catch the bus 150 until bad Ischl & switch to Bus 542 directly which will drop you right to the lake of Gosau in approximate 30 minutes. A simply you can do the reverse if you plan to visit Hallstatt from Gosau. Self-drive on this way is one of the amazing drives as you will passes through forests and through the mountains.
+> If you are traveling from Salzburg then catch the bus 150 until bad Ischl & switch to Bus 542 directly which will drop you right to the lake of Gosau in approximate 30 minutes. A simply you can do the reverse if you plan to visit Hallstatt from Gosau. Self-drive on this way is one of the amazing drives as you will passes through forests and through the mountains.
 
 Before I go any further, let me tell you that I don’t like hiking but I cannot miss great views even if I need to walk for a couple of hours.![](/uploads/Hallstatt-1 &#40;2&#41;.jpg){: width="1080" height="716"}
 
-**Tipp**\: If you are traveling with child then be aware there is lot of walking involve if you plan for Dachstein.&nbsp;
+> **Tipp**\: If you are traveling with child then be aware there is lot of walking involve if you plan for Dachstein.&nbsp;
 
-**Dachstein Krippenstein****\:**
+##### **Dachstein Krippenstein:&nbsp;**
 
 I started my day with ‘’All-in-One’’ ticket at Dachstein Krippenstein where I had explored the Mammut & Ice cave.&nbsp;![](/uploads/Hallstatt-1 &#40;3&#41;.jpg){: width="1080" height="723"}**Mammut Cave****\:**
 
 *Getting Here*\: Bus 543 direction towards Obertraun Dachsteinseilbahn Talstation from Hallstatt Römische in 20 minutes to the Dachstein Visitor Center; there ride up to the cable car gondola to the 1st station.&nbsp;![](/uploads/Hallstatt-1 &#40;4&#41;.jpg){: width="1080" height="721"}
 
-&nbsp;
-
-**Closed In Winter**\: The Mammut Caves are closed for Winter each November until May.
+> **Closed In Winter**\: The Mammut Caves are closed for Winter each November until May.
 
 I have started at middle station Schönbergalm (section I) for the Giant Mammut Cave which includes approximately 15 to 20 minutes walking toward cave entrance and then approximately 800 steps with few stairs on your way. You will be given the tour number at starting point and free guided tour is for 50 minutes with temperature of +3 &deg;C (37,4 &deg;F).![](/uploads/Hallstatt-1 &#40;26&#41;.jpg){: width="1066" height="731"}
 
-&nbsp;
-
-This name ‘’[Mammut Cave](https://dachstein-salzkammergut.com/en/summer/below-ground/mammut-cave/){: target="_blank"}’’ was chosen by explorers due to the surprizing dimensions of the underground spaces and passageways contained within this cave system. At present around 1 km of passageways can be seen through free guided tour wherein more than 70 km of these passageways have been explored.
+> This name ‘’[Mammut Cave](https://dachstein-salzkammergut.com/en/summer/below-ground/mammut-cave/){: target="_blank"}’’ was chosen by explorers due to the surprizing dimensions of the underground spaces and passageways contained within this cave system. At present around 1 km of passageways can be seen through free guided tour wherein more than 70 km of these passageways have been explored.
 
 **Children accessibility to the cave?&nbsp;**You will be amazed to see the fantastic infrastructure of the Mammut Cave. It is perfect for visits with kids of any age.&nbsp;
 
@@ -63,11 +57,9 @@ This name ‘’[Mammut Cave](https://dachstein-salzkammergut.com/en/summer/belo
 
 After this I headed toward to my favourite ‘’ICE CAVE’’
 
-**Giant Ice Cave****\:**
+##### **Giant Ice Cave****\:**
 
-[Ice cave](https://dachstein-salzkammergut.com/en/summer/below-ground/dachstein-giant-ice-cave/){: target="_blank"} is also located at middle station Schönbergalm (section I) which includes another approximately 15 to 20 minutes steep walking toward cave entrance and then nearly 500 steps with few stairs on your way. You will be given the tour number again at starting point and free guided tour is for another 50 minutes with this time temperature of -2 &deg;C (26,6 &deg;F).**&nbsp;![](/uploads/ice cave.jpg){: width="1066" height="727"}**
-
-I can give you assurance that you will never regret as it had Remarkable impression. This tour includes the cave bears, rope bridge and in the end light & sound show. While walking all of a sudden you hear roaring of ‘’Ben & Boris’’ on the other side ice revealed in every colour.
+[Ice cave](https://dachstein-salzkammergut.com/en/summer/below-ground/dachstein-giant-ice-cave/){: target="_blank"} is also located at middle station Schönbergalm (section I) which includes another approximately 15 to 20 minutes steep walking toward cave entrance and then nearly 500 steps with few stairs on your way. You will be given the tour number again at starting point and free guided tour is for another 50 minutes with this time temperature of -2 &deg;C (26,6 &deg;F).**&nbsp;![](/uploads/ice cave.jpg){: width="1066" height="727"}**I can give you assurance that you will never regret as it had Remarkable impression. This tour includes the cave bears, rope bridge and in the end light & sound show. While walking all of a sudden you hear roaring of ‘’Ben & Boris’’ on the other side ice revealed in every colour.
 
 The bad part is that due to global warming Giant Ice size is not increasing however it has been well maintained so that actual size does not decrease. So, hurry up and visit this place before it’s gets disappear.
 
@@ -77,9 +69,7 @@ The bad part is that due to global warming Giant Ice size is not increasing howe
 
 I was so tired and after these two memorable cave visit, I was in a favour of taking a break but when I saw there is another ride in cable car for astonishing view with which your heart can faint then I decided to ride up the cable car gondola to the 2nd station to 5 Finger lookout point.![](/uploads/Hallstatt-1 &#40;28&#41;.jpg){: width="1063" height="715"}
 
-&nbsp;
-
-**5 Fingers Lookout Point****\:**
+##### **5 Fingers Lookout Point****\:**
 
 This point at station Schönbergalm (section II) which includes another approximately 25 to 30 minutes’ walk toward for&nbsp;**most spectacular&nbsp;**top view.&nbsp;![](/uploads/Hallstatt-1 &#40;5&#41;.jpg){: width="1080" height="717"}
 
@@ -101,23 +91,13 @@ Lakeside stroll is one of the most delightful part of my visit.&nbsp; When you w
 
 Apart from Stefanie Ferry route (*€ 3 paid in August 2019*) which runs 365 days a year which goes around trip once in a hour from train station to village and vice versa I recommend to hire another boat trip to take the quick glance of lake to see the beautiful village. I love the tour boat company on Lake Hallstatt called Navia ([*website*](http://www.navia.at/){: target="_blank"}) which uses traditionally crafted&nbsp;**wooden salt boats**. They are so good and will also greet you as ''Namaste'' and this is the only place where I found display in HINDI. Please reserve your place in advance via online as Navia has daily tours April through late October.![](/uploads/Hallstatt-1 &#40;11&#41;.jpg){: width="1064" height="1601"}**Funicular Ride:**
 
-&nbsp;
-
-&nbsp;
-
 Yes, this small town also has the Funicular like other major cities and this ride will take you on the mountain. &nbsp;On top, you can visit the salt mine or the Rudolfstrum restaurant, which has a panoramic terrace overlooking the lake. Do not miss the ‘World Heritage Skywalk’ – a WOOOOW view platform, from the mountain 350 metres above Hallstatt.![](/uploads/Hallstatt-1 &#40;15&#41;.jpg){: width="1079" height="718"}![](/uploads/Hallstatt-1 &#40;12&#41;.jpg){: width="1070" height="711"}![](/uploads/Hallstatt-1 &#40;13&#41;.jpg){: width="1076" height="707"}
-
-## &nbsp;
 
 ##### **Visit to Hallstatt Salt Mine (Salzwelten):**
 
 If you are not interested to see world oldest salt mine and Europe’s oldest wooden staircase then buy a ticket only to go up and enjoy the surrounding and come back in just&nbsp;*€&nbsp;*18 per person.![](/uploads/Hallstatt-1 &#40;19&#41;.jpg){: width="1080" height="724"}![](/uploads/Hallstatt-1 &#40;20&#41;.jpg){: width="1076" height="713"}
 
-&nbsp;
-
-Visit to restaurant and Sky walk is included in this ticket however if you want to go back 7,000 years ago and would like to explore and understand the history of Bronze Age mining then begin with salt mining tour. You won’t miss the opportunity to see the multimedia technology including a Bronze Age Cinema 400 meters below ground.![](/uploads/Hallstatt-1 &#40;17&#41;.jpg){: width="1074" height="711"}![](/uploads/Hallstatt-1 &#40;18&#41;.jpg){: width="1065" height="1595"}
-
-**Closed in Winter:** The Salt Mine is closed in Winter.
+Visit to restaurant and Sky walk is included in this ticket however if you want to go back 7,000 years ago and would like to explore and understand the history of Bronze Age mining then begin with salt mining tour. You won’t miss the opportunity to see the multimedia technology including a Bronze Age Cinema 400 meters below ground.![](/uploads/Hallstatt-1 &#40;17&#41;.jpg){: width="1074" height="711"}![](/uploads/Hallstatt-1 &#40;18&#41;.jpg){: width="1065" height="1595"}**Closed in Winter:** The Salt Mine is closed in Winter.
 
 ##### **A Woow view of Skywalk:**
 
