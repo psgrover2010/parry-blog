@@ -41,7 +41,7 @@ All places are best in all season as every season has their own flavour and I pe
 
 #### Cyprus is best in culinary
 
-I think locals take their food seriously and dining out is rarely a small affair. I am a fan of David Goodridge who is a group executive chef in Anassa. There are plenty of dishes which I like the most Heirloom Beetroot, Grilled Lamb Kofta and Bourbon Vanilla Panna Cotta etc etc etc with endless list.
+I think locals take their food seriously and dining out is rarely a small affair. I am a fan of David Goodridge who is a group executive chef in Anassa. He has always new surprises at Helios Resutrant and how can i forgot about dinner at pelagos resturant. There are plenty of dishes which I like the most as Heirloom Beetroot, Grilled Lamb Kofta and Bourbon Vanilla Panna Cotta etc etc etc with endless list.
 
 The most amazing part was when you receive menu with your name tag i.e. Mr. Singh.
 
@@ -55,8 +55,10 @@ The most amazing part was when you receive menu with your name tag i.e. Mr. Sing
 
 After entering in a room, you will be surprised specially by the balconies that look out over the sea for outstanding natural beauty. The staff is efficient and very cooperative and friendly in nature. The main highlight of the stay was infinity pool, terraces, a dining area and breakfast place with the sea view. This place is a family friendly place specially with kids as there is a swimming pool and kids club with lots of a programme or workshops.
 
-#### Don’t miss:
+#### Don’t miss to explore the Island:
 
-The best swimming spots are accessible by boat. Don’t miss the blue lagoon which is known for the clearest water around. It was amazing experience to drive a super boat in the endless sea.
+The best swimming spots are accessible by boat. There is small town Latchi where you have a lot's of option of Watersports. They are expert and almost all watersports as they are established since last 40 years. You can hire a luxury Sailing Yacht and can admire sunset or morning fishing. Price list www.latchiwatersportscentre.com. We did hire a boat and went for swmming in the blue lagoon which is known for the clearest water around. It was unforgettable experience specially when i drove a super boat in the endless sea.
 
-&nbsp;
+Thank you to Sebastian Wurst (General Manger) and entire team for the wonderful and unforgettable stay and Chef, David Goodridge for amazing and one of the best food.&nbsp;
+
+If you have visited this place or planning to visit then feel free to share your moments in the comments.
