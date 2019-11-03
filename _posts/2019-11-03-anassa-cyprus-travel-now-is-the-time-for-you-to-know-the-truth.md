@@ -49,7 +49,7 @@ All places are best in all season as every season has their own flavour and I pe
 
 #### Cyprus is best in culinary
 
-I think locals take their food seriously and dining out is rarely a small affair. I am a fan of David Goodridge who is a group executive chef in Anassa. He has always new surprises at Helios Restaurant and how can i forgot about dinner at Pelagos Restaurant. There are plenty of dishes which I like the most as Heirloom Beetroot, Grilled Lamb Kofta and Bourbon Vanilla Panna Cotta etc etc etc with endless list.
+I think locals take their food seriously and dining out is nearly a small affair. I am a fan of David Goodridge who is a group executive chef in Anassa. He has always new surprises at Helios Restaurant and how can i forgot about dinner at Pelagos Restaurant. There are plenty of dishes which I like the most as Heirloom Beetroot, Grilled Lamb Kofta and Bourbon Vanilla Panna Cotta etc etc etc with endless list.
 
 ![](/uploads/Cyprus &#40;17&#41;.jpeg){: width="1184" height="1184"}
 
