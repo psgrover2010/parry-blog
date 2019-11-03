@@ -29,7 +29,7 @@ Anassa’s Thalassa Spa voted out for ‘no.1 overseas hotel spa’ and no.15 in
 
 ![](/uploads/Cyprus &#40;7&#41;.jpeg){: width="2268" height="2268"}
 
-Cyprus is the place which you must head down for a break and spend time with locals and see how they spend their life. In my view, the perfect Cyprus trip starts with where you stay.
+Cyprus is the place which you must head down for a break and spend time with locals and see how they live their life. In my view, the perfect Cyprus trip starts with where you stay.
 
 ![](/uploads/Cyprus &#40;9&#41;.jpeg){: width="4032" height="2268"}
 
