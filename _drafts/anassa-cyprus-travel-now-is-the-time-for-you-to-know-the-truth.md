@@ -1,7 +1,7 @@
 ---
 layout: post
 current: post
-cover: uploads/0000001.JPG
+cover: Cyprus (14).jpeg
 navigation: true
 title: Anassa Cyprus Travel-Now Is The Time For You To Know The Truth
 date: 2019-11-03 10:00:00
@@ -21,7 +21,7 @@ Every trip gives some learning and in this i have learned a lesson that I will n
 
 ![](/uploads/Cyprus &#40;3&#41;.jpeg){: width="4032" height="2268"}
 
-It was absolute mesmerize when your day starts where Mediterranean begins and you witness to one of the amazing sunsets. Let me tell you there are two major cities Limassol and Larnaca in Cyprus which has lively tourist attractions and I stayed in Larnaca in Hotel Anassa.
+It was absolute mesmerize when your day starts where Mediterranean begins and you witness to one of the amazing sunsets. Let me tell you there are two major cities Limassol and Larnaca in Cyprus which has lively tourist attractions and I stayed in Larnaca in [Hotel Anassa](https://www.anassa.com/){: target="_blank"}.
 
 ![](/uploads/Cyprus &#40;14&#41;.jpeg){: width="1620" height="1080"}
 
@@ -51,7 +51,7 @@ All places are best in all season as every season has their own flavour and I pe
 
 #### Cyprus is best in culinary
 
-I think locals take their food seriously and dining out is rarely a small affair. I am a fan of David Goodridge who is a group executive chef in Anassa. He has always new surprises at Helios Resutrant and how can i forgot about dinner at pelagos resturant. There are plenty of dishes which I like the most as Heirloom Beetroot, Grilled Lamb Kofta and Bourbon Vanilla Panna Cotta etc etc etc with endless list.
+I think locals take their food seriously and dining out is rarely a small affair. I am a fan of David Goodridge who is a group executive chef in Anassa. He has always new surprises at Helios Restaurant and how can i forgot about dinner at Pelagos Restaurant. There are plenty of dishes which I like the most as Heirloom Beetroot, Grilled Lamb Kofta and Bourbon Vanilla Panna Cotta etc etc etc with endless list.
 
 ![](/uploads/Cyprus &#40;17&#41;.jpeg){: width="1184" height="1184"}
 
@@ -71,7 +71,9 @@ After entering in a room, you will be surprised specially by the balconies that 
 
 #### Don’t miss to explore the Island:
 
-The best swimming spots are accessible by boat. There is small town Latchi where you have a lot's of option of Watersports. They are expert and almost all watersports as they are established since last 40 years. You can hire a luxury Sailing Yacht and can admire sunset or morning fishing. Price list www.latchiwatersportscentre.com. We did hire a boat and went for swmming in the blue lagoon which is known for the clearest water around. It was unforgettable experience specially when i drove a super boat in the endless sea.
+The best swimming spots are accessible by boat. There is small town Latchi where you have a lot's of option of Watersports. They are expert and almost all watersports as they are established since last 40 years. You can hire a luxury Sailing Yacht and can admire sunset or morning fishing. [Price list.](www.latchiwatersportscentre.com){: target="_blank"}
+
+We did hire a boat and went for swimming in the blue lagoon which is known for the clearest water around. It was unforgettable experience specially when i drove a super boat in the endless sea.
 
 ![](/uploads/Cyprus &#40;12&#41;.jpeg){: width="1620" height="1080"}
 
