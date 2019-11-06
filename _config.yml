@@ -76,7 +76,6 @@ relative_source: ../jasper2/
 destination: ./docs/
 
 exclude:
-  - assets/css
   - node_modules
   - vendor
   - .travis.yml
