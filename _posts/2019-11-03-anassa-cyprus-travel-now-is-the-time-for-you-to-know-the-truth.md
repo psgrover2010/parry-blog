@@ -19,13 +19,6 @@ In my teenage, I was watching such places in Bollywood movies and dreaming about
 
 Every trip gives some learning and in this i have learned a lesson that I will never ever try sea food any more (such a pity I know but this is it). In other words, this will not stop me to try new things\!\!
 
-&nbsp;
-
-![](/uploads/screenshot-2019-11-06-at-15-18-50.png){: width="2396" height="822"}
-
-&nbsp;
-
-&nbsp;
 
 ![](/uploads/Cyprus &#40;3&#41;.jpeg){: width="4032" height="2268"}It was absolute mesmerize when your day starts where Mediterranean begins and you witness to one of the amazing sunsets. Let me tell you there are two major cities Limassol and Larnaca in Cyprus which has lively tourist attractions and I stayed in Larnaca in [Hotel Anassa](https://www.anassa.com/){: target="_blank"}.
 
