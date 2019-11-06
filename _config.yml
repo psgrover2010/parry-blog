@@ -74,8 +74,7 @@ repo: parry-blog
 branch: master
 relative_source: ../jasper2/
 destination: ./docs/
-production_url:  https://thevisits.in/
-source_url:  https://github.com/jekyller/jasper2/
+
 
 exclude:
   - assets/css
