@@ -32,6 +32,13 @@ body {
     background: #f4f8fb;
 }
 
+/** image resizing technique **/
+
+img {
+    max-width: 100%;
+    height: auto;
+}
+
 .img {
     display: block;
     width: 100%;
@@ -1913,3 +1920,4 @@ Usage (In Ghost editor):
         margin-left: 0;
     }
 }
+
