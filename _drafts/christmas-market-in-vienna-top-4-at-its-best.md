@@ -31,6 +31,8 @@ Do not miss Thai Punsch at Jörgs H&uuml;tte (it can be last stand on the right 
 
 ##### **Christkindlmarkt at Rathausplatz:**
 
+A most famous in Austria with many wow factors. One of the touristic but I highly recommend it.
+
 **Where:**&nbsp; Rathausplatz, 1010 Vienna
 
 **From: Nov. 16 – Dec. 26, plus&nbsp;**Ice skating until Jan 6, 2019: daily 10:00 am - 10:00 pm.
@@ -42,6 +44,8 @@ Do not miss Thai Punsch at Jörgs H&uuml;tte (it can be last stand on the right 
 **From: Nov. 21 - Dec. 26, plus&nbsp;**New Year's Village Dec. 27 - 31 Dec.
 
 ##### Adventmarkt am Karlsplatz (Karlskirche):
+
+A stunning market and city’s most iconic landmarks in the heart of Vienna.
 
 **Where:**&nbsp;Resselpark am Karlsplatz, 1010&nbsp;
 
