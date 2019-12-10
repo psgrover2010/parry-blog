@@ -1,7 +1,7 @@
 ---
 layout: post
 current: post
-cover: uploads/000000111.jpeg
+cover: uploads/CS 2.jpeg
 navigation: true
 title: Christmas Market in Vienna-Top 4 at its Best
 date: 2019-11-03 10:00:00
