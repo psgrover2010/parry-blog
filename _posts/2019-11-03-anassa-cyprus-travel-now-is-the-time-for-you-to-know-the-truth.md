@@ -7,7 +7,6 @@ title: Anassa Cyprus Travel-Now Is The Time For You To Know The Truth
 date: 2019-11-03 10:00:00
 tags:
   - Europe
-  - Austria
 class: post-template
 subclass: post tag-getting-started
 author: parry
@@ -18,7 +17,6 @@ In my teenage, I was watching such places in Bollywood movies and dreaming about
 ![](/uploads/Cyprus &#40;2&#41;.jpeg){: width="4032" height="2268"}
 
 Every trip gives some learning and in this i have learned a lesson that I will never ever try sea food any more (such a pity I know but this is it). In other words, this will not stop me to try new things\!\!
-
 
 ![](/uploads/Cyprus &#40;3&#41;.jpeg){: width="4032" height="2268"}It was absolute mesmerize when your day starts where Mediterranean begins and you witness to one of the amazing sunsets. Let me tell you there are two major cities Limassol and Larnaca in Cyprus which has lively tourist attractions and I stayed in Larnaca in [Hotel Anassa](https://www.anassa.com/){: target="_blank"}.
 
