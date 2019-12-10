@@ -4,7 +4,7 @@ current: post
 cover: uploads/CS 2.jpeg
 navigation: true
 title: Christmas Market in Vienna-Top 4 at its Best
-date: 2019-11-03 10:00:00
+date: 2019-12-03 10:00:00
 tags:
   - Europe
   - Austria
