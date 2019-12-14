@@ -33,11 +33,11 @@ The Advent Market at these places always stands out from the crowd of Christmas 
 
 ##### **The best Gl&uuml;hwein or Punsch?**
 
-Almost all punsch are good at these Chrismasmarkt. We liked Thai Punsch at Jörgs H&uuml;tte (a last stand on the right of the Karlskirche) and Birne-Vanilla Punsch is also delicious.![](/uploads/CS 17.jpeg){: width="1620" height="1080"}**Christkindlmarkt at Rathausplatz:**
+Almost all punsch are good at these Chrismasmarkt. We liked Thai Punsch at Jörgs H&uuml;tte (a last stand on the right of the Karlskirche) and Birne-Vanilla Punsch is also delicious.![](/uploads/CS 17.jpeg){: width="1620" height="1080"}**[Christkindlmarkt at Rathausplatz](https://www.wienerweihnachtstraum.at/christkindlmarkt-und-eistraum/){: target="_blank"}\:**
 
 A most famous in Austria with many wow factors. A bit of the touristic but I highly recommend.
 
-**Where:**&nbsp; Rathausplatz, 1010 Vienna
+**Where:**&nbsp; Rathausplatz, 1010 Vienna&nbsp;
 
 **From: Nov. 16 – Dec. 26, plus&nbsp;**Ice skating until Jan 6, 2019: daily 10:00 am - 10:00 pm.![](/uploads/CS 7.jpeg){: width="1620" height="1080"}
 
@@ -45,7 +45,7 @@ A most famous in Austria with many wow factors. A bit of the touristic but I hig
 
 ##### ![](/uploads/CS 6.jpeg){: width="1080" height="1620"}
 
-##### Christmas Village on Maria-Theresien-Platz:
+##### [Christmas Village on Maria-Theresien-Platz](https://www.weihnachtsmarkt.at/en/maria-theresien-platz/the-market/information/){: target="_blank"}\:
 
 **Where:**&nbsp;Maria-Theresien-Platz, 1010 Vienna&nbsp;
 
