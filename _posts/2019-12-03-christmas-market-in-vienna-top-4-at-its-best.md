@@ -3,7 +3,7 @@ layout: post
 current: post
 cover: uploads/CS 2.jpeg
 navigation: true
-title: Christmas Market in Vienna-Top 4 at its Best
+title: 'Christmas Market in Vienna: Top 4 at its Best'
 date: 2019-12-03 10:00:00
 tags:
   - Europe
@@ -49,9 +49,7 @@ A most famous in Austria with many wow factors. A bit of the touristic but I hig
 
 **Where:**&nbsp;Maria-Theresien-Platz, 1010 Vienna&nbsp;
 
-**From: Nov. 21 - Dec. 26, plus&nbsp;**New Year's Village Dec. 27 - 31 Dec.
-
-![](/uploads/CS 15.jpeg){: width="1620" height="1080"}
+**From: Nov. 21 - Dec. 26, plus&nbsp;**New Year's Village Dec. 27 - 31 Dec.![](/uploads/CS 15.jpeg){: width="1620" height="1080"}
 
 ##### ![](/uploads/CS 12.jpeg){: width="1620" height="1080"}
 
@@ -59,9 +57,7 @@ A most famous in Austria with many wow factors. A bit of the touristic but I hig
 
 A stunning market and city’s most iconic landmarks in the heart of Vienna.
 
-**Where:**&nbsp;Resselpark am Karlsplatz, 1010&nbsp;
-
-![](/uploads/cs 22.jpeg){: width="4032" height="1960"}
+**Where:**&nbsp;Resselpark am Karlsplatz, 1010&nbsp;![](/uploads/cs 22.jpeg){: width="4032" height="1960"}
 
 ![](/uploads/CS 18.jpeg){: width="1620" height="1080"}
 
@@ -77,6 +73,4 @@ A perfect combination with visit to Schönbrunn palace and experience Christmasm
 
 ![](/uploads/CS 5.jpeg){: width="1620" height="1080"}
 
-![](/uploads/CS 10.jpeg){: width="1620" height="1080"}
-
-Have you also visited such Christmas Markt in your locations or Anyone of these in Vienna? Write me in comments.
+![](/uploads/CS 10.jpeg){: width="1620" height="1080"}Have you also visited such Christmas Markt in your locations or Anyone of these in Vienna? Write me in comments.
