@@ -29,7 +29,7 @@ instagram: thevisits.in
 # Disqus
 disqus_enabled: True
 disqus :
-    shortname : thevisits-in # replace with your disqus username
+shortname : thevisits-in # replace with your disqus username
 url: https://thevisits.in
 
 # Google Analytics
@@ -67,13 +67,14 @@ plugins: [jekyll-paginate, jekyll-feed]
 # repo defaults to USERNAME.github.io
 # Branch defaults to "source" for USERNAME.github.io
 # or "master" otherwise
-safe: False
-lsi: False
-username: psgrover2010
-repo: parry-blog
-branch: master
-relative_source: ../jasper2/
-destination: ./docs/
+
+# safe: False
+# lsi: False
+# username: psgrover2010
+# repo: parry-blog
+# branch: master
+# relative_source: ../jasper2/
+# destination: ./docs/
 
 exclude:
   - node_modules
