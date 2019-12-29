@@ -68,13 +68,13 @@ plugins: [jekyll-paginate, jekyll-feed]
 # Branch defaults to "source" for USERNAME.github.io
 # or "master" otherwise
 
-# safe: False
-# lsi: False
-# username: psgrover2010
-# repo: parry-blog
-# branch: gh-pages
-# relative_source: ../jasper2/
-# destination: ./docs/
+safe: False
+lsi: False
+username: psgrover2010
+repo: parry-blog
+branch: gh-pages
+relative_source: ../jasper2/
+destination: ./docs/
 
 exclude:
   - node_modules
