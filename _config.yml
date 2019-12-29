@@ -72,7 +72,7 @@ safe: False
 lsi: False
 username: psgrover2010
 repo: parry-blog
-branch: gh-pages
+branch: master
 relative_source: ../jasper2/
 destination: ./docs/
 
