@@ -1,7 +1,7 @@
 ---
 layout: post
 current: post
-cover: uploads/Cyprus (21).jpeg
+cover: uploads/000000001111.jpeg
 navigation: true
 title: Anassa Cyprus Travel-Now Is The Time For You To Know The Truth
 date: 2019-11-03 10:00:00
@@ -40,7 +40,7 @@ I recommend to stay in a Anassa Hotel which is outside of the main city or a ren
 
 All places are best in all season as every season has their own flavour and I personally feel Cyprus can be best in the spring and autumn months. Please avoid summer unless you are not traveling on mountains as it can be very hot around July and August (also a peak season). I was there in Mid of October and it was great to feel summer when your home city has chilly winds and season heading towards winter.
 
-![](/uploads/Cyprus &#40;21&#41;.jpeg){: width="1600" height="1200"}
+![](/uploads/000000001111.jpeg){: width="1600" height="1200"}
 
 ![](/uploads/Cyprus &#40;20&#41;.jpeg){: width="1200" height="1600"}
 
