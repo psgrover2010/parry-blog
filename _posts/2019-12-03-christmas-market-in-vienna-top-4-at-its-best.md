@@ -1,7 +1,7 @@
 ---
 layout: post
 current: post
-cover: uploads/CS 2.jpeg
+cover: uploads/000011111.jpeg
 navigation: true
 title: 'Christmas Market in Vienna: Top 4 at its Best'
 date: 2019-12-03 10:00:00
@@ -15,7 +15,9 @@ author: parry
 
 Christmas Season in Vienna is always special to everyone\! This is our 4th season and we are already excited about it as entire city is already decorated for amazing view with millions of lights as we do celebrate light festival of Diwali in India. It will be worth to see this season in Vienna as all streets for shopping, buildings & Vienna squares turn into wonderful Christmas Markets starting from mid of November.
 
-Do not miss a hot cup of Punsch, Gl&uuml;hwein or Tea. It gets really cold in Vienna on these days hence what will be the best than these drinks.![](/uploads/CS 20.JPG){: width="4496" height="3000"}There are many Christmas Markets in Vienna but the most popular and best in class or I would say the one I like the most is Christmas Markets at Wiener Rathausplatz, Maria-Theresien-Platz, Karlskirche and Schönbrunn Castle.![](/uploads/CS 2.jpeg){: width="1620" height="1080"}
+Do not miss a hot cup of Punsch, Gl&uuml;hwein or Tea. It gets really cold in Vienna on these days hence what will be the best than these drinks.![](/uploads/CS 20.JPG){: width="4496" height="3000"}There are many Christmas Markets in Vienna but the most popular and best in class or I would say the one I like the most is Christmas Markets at Wiener Rathausplatz, Maria-Theresien-Platz, Karlskirche and Schönbrunn Castle.
+
+![](/uploads/000011111.jpeg){: width="1620" height="1080"}
 
 ##### ![](/uploads/CS 19.jpeg){: width="1620" height="1080"}
 
