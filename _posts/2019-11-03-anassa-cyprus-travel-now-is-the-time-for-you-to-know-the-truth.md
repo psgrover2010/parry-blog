@@ -1,7 +1,7 @@
 ---
 layout: post
 current: post
-cover: uploads/000000111.jpeg
+cover: uploads/Cyprus (21).jpeg
 navigation: true
 title: Anassa Cyprus Travel-Now Is The Time For You To Know The Truth
 date: 2019-11-03 10:00:00
