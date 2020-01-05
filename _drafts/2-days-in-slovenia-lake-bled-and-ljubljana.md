@@ -4,10 +4,9 @@ current: post
 cover: uploads/00000L&B.jpeg
 navigation: true
 title: '2 days in Slovenia: Lake Bled and Ljubljana'
-date: 2019-12-30 10:00:00
+date: 2020-01-06 10:00:00
 tags:
   - Europe
-  - Austria
 class: post-template
 subclass: post tag-getting-started
 author: parry
