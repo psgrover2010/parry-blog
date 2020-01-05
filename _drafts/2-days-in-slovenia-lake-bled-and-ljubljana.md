@@ -13,17 +13,19 @@ subclass: post tag-getting-started
 author: parry
 ---
 
-I think this may be one of Europe’s smaller capital cities. Thanks to its size as we found 2 days is enough time in Ljubljana for us to explore the city’s highlights and even take a trip to one of the most beautiful lake in the world called BLED. In the following article you will find what to do in Ljubljana in 2 days so you can make the most of your visit and also encourage your friends and family to visit too.
+I think this may be one of Europe’s smaller capital cities. Thanks to its size as we found 2 days is enough time in Ljubljana for us to explore the city’s highlights and even take a trip to one of the most beautiful lake in the world called BLED. In the following article you will find what to do in Ljubljana in 2 days so you can make the most of your visit and also encourage your friends and family to visit too.![](/uploads/L&amp;B 1.jpeg){: width="1620" height="1080"}
 
 ### **Day 1 in Ljubljana**
 
 We rented Airbnb in Ljubljana and started our day in the beautiful city. *I always&nbsp; found&nbsp;***[Airbnb](https://www.airbnb.com/){: target="_blank"}***&nbsp;a good option to book a stay**.&nbsp; If you are a first timer in Airbnb then click on this&nbsp;*[link](https://www.airbnb.com/c/parvinders222?currency=EUR){: target="_blank"}*&nbsp;to complete the process to get the discount both ways.*
 
-We approached directly to the city main centre at Preseren Square. All city meets up and celebration happen just right by the Preseren Square. If there’s an event going on in Ljubljana then there is a good chance it will happen in this space. Regarding its history the square takes its name from the 19th-century poet France Preseren whose work “Zdravljica”, “A Toast”, which also became Slovenia’s national anthem. France Preseren statue is located next to the Central Pharmacy.
+*![](/uploads/L&amp;B5.jpeg){: width="1620" height="1080"}*We approached directly to the city main centre at Preseren Square. All city meets up and celebration happen just right by the Preseren Square. If there’s an event going on in Ljubljana then there is a good chance it will happen in this space. Regarding its history the square takes its name from the 19th-century poet France Preseren whose work “Zdravljica”, “A Toast”, which also became Slovenia’s national anthem. France Preseren statue is located next to the Central Pharmacy.
 
 **Triple Bridge**
 
 Next stop was to admire triple bridge which is located in front of the Preseren Square where you can see three bridges decorated with stone railings and lanterns. The central bridge is dated 1842 and is much older than the two others. This was intended for road traffic, and others two were added for pedestrians at the start of the 1930.
+
+&nbsp;
 
 **Ljubljana Old Town**
 
