@@ -1,7 +1,7 @@
 ---
 layout: post
 current: post
-cover: uploads/CS 2.jpeg
+cover: uploads/00000L&B.jpeg
 navigation: true
 title: '2 days in Slovenia: Lake Bled and Ljubljana'
 date: 2019-12-30 10:00:00
