@@ -23,23 +23,17 @@ We rented Airbnb in Ljubljana and started our day in the beautiful city. *I alwa
 
 **Triple Bridge**
 
-Next stop was to admire triple bridge which is located in front of the Preseren Square where you can see three bridges decorated with stone railings and lanterns. The central bridge is dated 1842 and is much older than the two others. This was intended for road traffic, and others two were added for pedestrians at the start of the 1930.
-
-&nbsp;
-
-**Ljubljana Old Town**
+Next stop was to admire triple bridge which is located in front of the Preseren Square where you can see three bridges decorated with stone railings and lanterns. The central bridge is dated 1842 and is much older than the two others. This was intended for road traffic, and others two were added for pedestrians at the start of the 1930.![](/uploads/L&amp;B19.jpg){: width="6000" height="4000"}**Ljubljana Old Town**
 
 Once you cross the river from Preseren Square you enter the Old Town of Ljubljana. It’s not a large old town as within the Old Town you’ll find one street that runs right along the riverbank and the other through from one square to the next. Don’t miss to look down as the city has some ornate manhole covers.
 
 **Dragon Bridge**
 
-The other iconic bridge is the Dragon Bridge which was constructed in 1901. It is worth to visit as the dragon is the symbol for the city of Ljubljana so one photo with Dragon is necessary. As soon as you see this bridge the origin behind its name should become clear. On each of its four corners sits an expressive bronze statue of a dragon, with other dragon figures also worked in through the bridge’s design.
-
-**Ljubljana Riverfront**
+The other iconic bridge is the Dragon Bridge which was constructed in 1901. It is worth to visit as the dragon is the symbol for the city of Ljubljana so one photo with Dragon is necessary. As soon as you see this bridge the origin behind its name should become clear. On each of its four corners sits an expressive bronze statue of a dragon, with other dragon figures also worked in through the bridge’s design.![](/uploads/L&amp;B18.jpg){: width="6000" height="4000"}![](/uploads/L&amp;B11.jpeg){: width="906" height="1611"}**Ljubljana Riverfront**
 
 The riverfront is the perfect place to admire Ljubljana’s beauty and it depends on which direction you choose to follow the riverfront, you’ll be taken past Butchers’ Bridge and the Ljubljana Central Market. If you want, you can even follow the river down to Spica Park where the two forks of the Ljubljana meet again.
 
-**Important takeaway of Ljubljana:**
+**Late night Eating:** Check out BBQ-Rebrca worl famous Burger. We just loving it.![](/uploads/L&amp;B20.jpg){: width="6000" height="4000"}**Important takeaway of Ljubljana:**
 
 **Taxi**\: If you just sit into, you will most probably end up paying at least 5 times the normal fare. There are a lot of freelance taxi’s unregulated by the Municipality taxies, who just wait for tourists and elderly people. I understood normal fare in Ljubljana is just under 1 € for start and then around 80 cents per kilometre. Here are some bigger taxi companies, all reliable, with phone numbers: METRO 080 1190,&nbsp; INTERTOURS 080 8294, LAGUNA 080 1233 , INTAXI LJUBLJAN 080 40 20, CAMMEO +386 (1) 777 1212&nbsp;[https://cammeo.si](https://cammeo.si/){: target="_blank"}
 
@@ -51,21 +45,13 @@ The riverfront is the perfect place to admire Ljubljana’s beauty and it depend
 
 ### **Day 2 BLED**
 
-It is comfortable to Lake Bled by public transport. We took the bus from main stop opposite the train station which dropped us in one hour few minutes in the center of town. It costs us approximate €6 per person one-way.
+It is comfortable to Lake Bled by public transport. We took the bus from main stop opposite the train station which dropped us in one hour few minutes in the center of town. It costs us approximate €6 per person one-way.![](/uploads/L&amp;B2.jpeg){: width="1620" height="1080"}**Sit & stroll across the Lake Bled**&nbsp;
 
-**Sit & stroll across the Lake Bled**&nbsp;
+Lakeside stroll is one of the most delightful part of our visit.&nbsp; When you walk along the Lake Bled, you will notice how beautiful is this place. There are many places to sit and admire the beauty of nature.![](/uploads/L&amp;B6.jpeg){: width="1620" height="1080"}![](/uploads/L&amp;B10.jpeg){: width="1620" height="1080"}**Visit Island Church**
 
-Lakeside stroll is one of the most delightful part of our visit.&nbsp; When you walk along the Lake Bled, you will notice how beautiful is this place. There are many places to sit and admire the beauty of nature.
+The most famous attraction that Lake Bled is known for is the small island that is home to the 15th century Church of the Assumption of Maria. This little island church alone in the middle of the lake is a magical destination. There is a myth that a wish will be granted if you ring the church’s bell three times. As we do not believe in such myth hence, we did not go inside, so please be ready to make your wish. There is a 99 steps staircase are which seems goes down to descend into the water.![](/uploads/L&amp;B9.jpeg){: width="1421" height="799"}![](/uploads/L&amp;B4.jpeg){: width="1620" height="1080"}![](/uploads/L&amp;B3.jpeg){: width="1080" height="1620"}**Bled Castle**
 
-**Visit Island Church**
-
-The most famous attraction that Lake Bled is known for is the small island that is home to the 15th century Church of the Assumption of Maria. This little island church alone in the middle of the lake is a magical destination. There is a myth that a wish will be granted if you ring the church’s bell three times. As we do not believe in such myth hence, we did not go inside, so please be ready to make your wish. There is a 99 steps staircase are which seems goes down to descend into the water.
-
-**Bled Castle**
-
-The other major landmark you should to visit at Lake Bled is the town’s epic clifftop castle. This town has pretty feature and an interesting attraction to explore. Castle costs €11 for entry including museum.
-
-**What to Eat in Lake Bled?**
+The other major landmark you should to visit at Lake Bled is the town’s epic clifftop castle. This town has pretty feature and an interesting attraction to explore. Castle costs €11 for entry including museum.![](/uploads/L&amp;B7.jpeg){: width="1620" height="1080"}![](/uploads/L&amp;B.jpeg){: width="1620" height="1080"}**What to Eat in Lake Bled?**
 
 Lake Bled is best known for its delicious kremšnita, also known as Bled Cream Cake. The cream cake is a dessert made from layers of puff pastry, custard cream, and whipped cream.
 
