@@ -3,7 +3,7 @@ layout: post
 current: post
 cover: uploads/00000L&B.jpeg
 navigation: true
-title: '2 days in Slovenia: Lake Bled and Ljubljana'
+title: 2 days in Slovenia best Itinerary
 date: 2020-01-06 10:00:00
 tags:
   - Europe
@@ -16,7 +16,7 @@ I think this may be one of Europe’s smaller capital cities. Thanks to its size
 
 ### **Day 1 in Ljubljana**
 
-We rented Airbnb in Ljubljana and started our day in the beautiful city. *I always&nbsp; found&nbsp;***[Airbnb](https://www.airbnb.com/){: target="_blank"}***&nbsp;a good option to book a stay**.&nbsp; If you are a first timer in Airbnb then click on this&nbsp;*[link](https://www.airbnb.com/c/parvinders222?currency=EUR){: target="_blank"}*&nbsp;to complete the process to get the discount both ways.*
+We rented Airbnb in Ljubljana and started our day in the beautiful city. *I always&nbsp; found&nbsp;***[Airbnb](https://www.airbnb.com/){: target="_blank"}***&nbsp;a good option to book a stay\*\*.&nbsp; If you are a first timer in Airbnb then click on this&nbsp;*[link](https://www.airbnb.com/c/parvinders222?currency=EUR){: target="_blank"}*&nbsp;to complete the process to get the discount both ways.*
 
 *![](/uploads/L&amp;B5.jpeg){: width="1620" height="1080"}*We approached directly to the city main centre at Preseren Square. All city meets up and celebration happen just right by the Preseren Square. If there’s an event going on in Ljubljana then there is a good chance it will happen in this space. Regarding its history the square takes its name from the 19th-century poet France Preseren whose work “Zdravljica”, “A Toast”, which also became Slovenia’s national anthem. France Preseren statue is located next to the Central Pharmacy.
 
