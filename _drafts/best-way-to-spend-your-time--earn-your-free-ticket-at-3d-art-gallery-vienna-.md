@@ -14,3 +14,34 @@ subclass: post tag-getting-started
 author: parry
 ---
 
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+![](/uploads/3d Art &#40;13&#41;.jpeg){: width="3913" height="5869"}
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
