@@ -16,9 +16,9 @@ author: parry
 
 &nbsp;
 
-**To give you a good taste of what’s coming up...**
+**To give you a good taste of what’s coming up…**
 
-Below ... I’ll give you the inside about [3D Art Gallery](https://www.3dpicart-museum.at/){: target="_blank"} which is one of the unique place in Vienna. Before we proceed I recommend to read the complete article, comment and share. Ready to find?
+Below … I’ll give you the inside about [3D Art Gallery](https://www.3dpicart-museum.at/){: target="_blank"} which is one of the unique place in Vienna. If you are innovative and smart then this place is for you. Before we proceed I recommend to read the complete article, comment and share. Ready to find?
 
 In general, Museums and art gallery- we see artist imagination in beautiful Painting, Sculptures and Murals. I must say Vienna is a hub of artistic talent.
 
@@ -34,5 +34,7 @@ Important to know:
 4. Like others properties in Vienna and to protect this amazing 3D Art Gallery, eating and drinking is not allowed in museum.
 5. Wheelchair accessibility is not available on 1st floor so plan your visit accordingly.
 6. Pets are not allowed.
+7. It is open from Monday to Sunday 10am to 7pm.
+8. Adult tickets is for Euro 12 and kids are free under 6.
 
 Hope you plan your visits soon. Do write your experience or comment below.
